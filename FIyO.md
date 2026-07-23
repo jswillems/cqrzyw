@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月23日 21时24分59秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>云南暑期游订单破3000万，文旅收入同比增长85%</h3><br><p>嫦娥探月工程新任务，航天科技产业链迎来催化。<br><br> | 来源：<code>https;//lanjingruanjianxiazaiwangzhi.com.cn
+</code></p><br><br><h3>苏州马拉松开跑，3万跑者体验江南赛道赛事口碑持续提升</h3><br><p>极端暴雨灾害预警，水利基建标的全线上涨。<br><br> | 来源：<code>https;//lanjingtiyuzhiboappguanwangxiazai.com.cn
+</code></p><br><br><h3>敦煌莫高窟暑期门票预约排至10天后，数字敦煌线上访问破亿</h3><br><p>企业中长期贷款增速回升，宽信用效果逐步显现。<br><br> | 来源：<code>https;//lanjingzhiboapp.org.cn
+</code></p><br><br><h3>矿产资源勘探政策，地质勘查标的全线异动</h3><br><p>全国体育场馆免费或低收费开放，年接待群众超10亿人次。<br><br> | 来源：<code>https;//lanjingzhiboappguanfang.org.cn
+</code></p><br><br><h3>中国手球俱乐部首次获得亚洲冠军，项目发展迎来新机遇</h3><br><p>控股股东耗资4亿增持算力租赁标的，回购注销增厚每股收益。<br><br> | 来源：<code>https;//lanjingzhiboguanfangbanxiazai.com.cn
+</code></p><br><br><h3>大秦铁路异动拉升2.8%，煤炭运输量稳步提升</h3><br><p>券商研究所扎堆调研数字人民币标的，线下场景覆盖突破亿级。<br><br> | 来源：<code>https;//lanjingzhiboguanwang.com.cn
+</code></p><br><br><h3>实控人邀约收购光刻胶标的，溢价40%发起部分要约收购</h3><br><p>集成电路税收减免政策延长，芯片全板块集体上涨。<br><br> | 来源：<code>https;//lanjingzhibonbamianfeiguankan.com.cn
+</code></p><br><br><h3>存款利率迎来新一轮下调，银行板块短期承压负债端改善</h3><br><p>呼吸道疾病高发，儿科医药板块集体上涨。<br><br> | 来源：<code>https;//lanjingzhibotiyuzhibo.com.cn
+</code></p><br><br><h3>中国垒球队获得亚运会银牌，项目普及度快速提升</h3><br><p>北向资金连续加仓通威股份，光伏龙头获外资长线布局。<br><br> | 来源：<code>https;//lanjingzhibowangye.com.cn
+</code></p><br><br><h3>控股股东耗资4亿增持算力租赁标的，回购注销增厚每股收益</h3><br><p>全国工业用水重复利用率达92%，节水型工业体系建成。<br><br> | 来源：<code>https;//lanjingzhiboxiazaiwangzhi.com.cn
+</code></p><br><br><h3>新希望异动拉升3.9%，生猪出栏量持续高增</h3><br><p>全国海洋生态环境质量稳中向好，一类海水比例达78%。<br><br> | 来源：<code>https;//lanjingzhibozhengbanxiazaianzhuang.com.cn
+</code></p><br><br><h3>端侧AI应用爆发，手机AI功能月活用户破10亿</h3><br><p>中国中冶冶金工程优势：新能源冶金赛道的领先地位。<br><br> | 来源：<code>https;//lanqiuzhiboapp.org.cn
+</code></p><br><br><h3>美联储降息预期提前落地，黄金价格创历史新高</h3><br><p>机构资金集中买入阳光电源3.8亿，逆变器龙头获机构抱团。<br><br> | 来源：<code>https;//lanqiuzhiboappxiazaianzhuang.com.cn
+</code></p><br><br><h3>知名私募大手笔增持乳制品龙头，持仓占比达3.5%</h3><br><p>全球农业科技市场规模突破3000亿美元，智慧农业普及。<br><br> | 来源：<code>https;//lanqiuzhibogaoqingguankan.org.cn
+</code></p><br><br><h3>东北振兴新举措出台，推动老工业基地产业转型升级</h3><br><p>MCU芯片价格单月上涨8%，汽车半导体板块盈利改善。<br><br> | 来源：<code>https;//leqiubajrszhiboxiazai.com.cn
+</code></p><br><br><h3>碳排放权交易市场扩容，碳交易标的全线异动</h3><br><p>核聚变实验装置获重大进展，可控核聚变标的异动。<br><br> | 来源：<code>https;//leqiutvzhiboguanwang.org.cn
+</code></p><br><br><h3>国内亲子乐园新增超1000家，沉浸式体验项目成标配</h3><br><p>美联储宣布降息25BP，全球权益资产迎来估值修复窗口。<br><br> | 来源：<code>https;//leqiuzaixianzhibowuchajian.org.cn
+</code></p><br><br><h3>文化纸价格单月上涨6%，纸企盈利边际改善</h3><br><p>知名私募调研卫星互联网标的，低轨卫星组网计划披露。<br><br> | 来源：<code>https;//leqiuzhiboappguanwangrukouanzhuoban.com.cn
+</code></p><br><br><h3>国内AI产业规模破2万亿，年增速超35%成经济新引擎</h3><br><p>氢能产业中长期规划，氢能源全板块集体上涨。<br><br> | 来源：<code>https;//leqiuzhiboappmianfei.com.cn
+</code></p><br><br><h3>百亿私募组团调研碳化硅企业，车规级器件量产线投产</h3><br><p>东方电缆异动拉升5.2%，海缆订单持续落地。<br><br> | 来源：<code>https;//leqiuzhiboappxiazaiguanwang.com.cn
