@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分00秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>超210家机构到访AI安防龙头，海外政府订单同比大增</h3><br><p>央行下调再贷款利率，精准支持科技创新领域。<br><br> | 来源：<code>https://meinu-huangsexiaoshuo.com
+</code></p><br><br><h3>养老服务体系建设政策，养老产业标的全线走强</h3><br><p>万科A地产行业格局：龙头房企的抗风险能力与复苏空间。<br><br> | 来源：<code>https://meinu-wangzhan-se.com.cn
+</code></p><br><br><h3>超200家机构到访数据要素龙头，数据确权商业模式落地</h3><br><p>1年期LPR下调降低企业短期融资成本，经营活力提升。<br><br> | 来源：<code>https://meinubeicao.com.cn
+</code></p><br><br><h3>国内大模型评测标准发布，统一行业能力评估体系</h3><br><p>保险资管扎堆调研机器人减速器标的，产能释放进度披露。<br><br> | 来源：<code>https://meinuluoti.org.cn
+</code></p><br><br><h3>江苏建工放量上涨3.3%，江苏区域基建投资回暖</h3><br><p>国内多模态大模型实现3D场景实时渲染，元宇宙体验升级。<br><br> | 来源：<code>https://meinushipin.com.cn
+</code></p><br><br><h3>美联储开启降息周期，人民币汇率迎来趋势性升值</h3><br><p>不要盲目跟风炒热点：大部分追高的资金，最后都会成为接盘侠。<br><br> | 来源：<code>https://meinuziwei.com.cn
+</code></p><br><br><h3>科大讯飞AI业务盈利兑现，单季净利润同比增120%</h3><br><p>5年期LPR下调15BP，地产链估值修复行情延续。<br><br> | 来源：<code>https://meiri-dasai-yandex-guan-wang.com.cn
+</code></p><br><br><h3>全国分布式能源装机规模突破12亿千瓦，就地就近消纳</h3><br><p>美的集团全球化运营：家电龙头的海外市场拓展逻辑。<br><br> | 来源：<code>https://meiri-dasai-zamixian-guankan.com.cn
+</code></p><br><br><h3>中药配方颗粒政策放开，中药板块集体走强</h3><br><p>海外资管组团调研光伏支架标的，跟踪支架海外渗透率提升。<br><br> | 来源：<code>https://meiri-dasaizaixianguankan.com.cn
+</code></p><br><br><h3>游资顶级席位联手买入天齐锂业3亿，锂矿龙头获资金追捧</h3><br><p>国内老年文旅市场升温，银发游订单同比增长70%。<br><br> | 来源：<code>https://mengciyuan.com.cn
+</code></p><br><br><h3>世界贸易组织第13届部长级会议召开，达成多项多边协议</h3><br><p>控股股东耗资5.2亿增持智慧交通标的，回购股份用于股权激励。<br><br> | 来源：<code>https://mengnandanshengji.net.cn
+</code></p><br><br><h3>全国青少年校园足球特色学校超3万所，足球人口快速增长</h3><br><p>超150家机构到访工业机器人标的，产能利用率突破90%。<br><br> | 来源：<code>https://mengruoyu.com.cn
+</code></p><br><br><h3>石大胜华异动拉升4.6%，溶剂行业供需格局优化</h3><br><p>电感产品价格上涨3%，电子全产业链盈利优化。<br><br> | 来源：<code>https://mianfei-huangyou.com.cn
+</code></p><br><br><h3>国内AI生成短视频用户破5亿，短视频行业迎来生产变革</h3><br><p>全国商品房销售面积同比由负转正，市场信心逐步恢复。<br><br> | 来源：<code>https://mianfei-kanpian.com.cn
+</code></p><br><br><h3>全国马术赛事超百场，马术运动从小众走向大众</h3><br><p>中超联赛场均上座人数突破2.5万，球市全面回暖。<br><br> | 来源：<code>https://mianfei-yijiwangzhan.com.cn
+</code></p><br><br><h3>快递行业监管优化，快递龙头标的全线拉升</h3><br><p>食品质量安全监管优化，头部食品标的拉升。<br><br> | 来源：<code>https://mianfei91wangye.com.cn
+</code></p><br><br><h3>中国女子曲棍球队闯入世界联赛总决赛，实力稳步回升</h3><br><p>产业资本连续3周增持存储芯片龙头，累计增持金额超8亿。<br><br> | 来源：<code>https://mianfeihuangyou.com.cn
+</code></p><br><br><h3>大股东耗资4.5亿增持碳化硅衬底龙头，助力6英寸产能扩张</h3><br><p>头部机构组团到访风电轴承龙头，大兆瓦轴承市占率提升。<br><br> | 来源：<code>https://mianfeishipin91.cn
+</code></p><br><br><h3>消费电子复苏周期：苹果链、安卓链的需求回暖信号</h3><br><p>长鑫存储DDR5产能释放，内存芯片标的集体上涨。<br><br> | 来源：<code>https://mianfeiyijiwangzhan-mianfei.com.cn
+</code></p><br><br><h3>中国高尔夫球选手首次夺得美巡赛冠军，实现历史性突破</h3><br><p>鸡肉价格单月上涨15%，白羽鸡板块盈利弹性释放。<br><br> | 来源：<code>https://mianfeizaixianchengwangzhan.com.cn
