@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分24秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>天齐锂业触底反弹，超跌后的修复空间测算</h3><br><p>中国与中亚五国经贸合作升级，双边贸易额突破千亿。<br><br> | 来源：<code>https://lou-fengxinxi.cn
+</code></p><br><br><h3>通威股份渔光互补模式：农业+新能源的协同发展路径</h3><br><p>全球人工智能产业规模突破5万亿美元，中美占据主导地位。<br><br> | 来源：<code>https://lqoax.cn
+</code></p><br><br><h3>杭州西湖暑期日均客流超30万，智慧景区系统保障游览秩序</h3><br><p>洽洽食品涨超3.4%，坚果业务收入增速回升。<br><br> | 来源：<code>https://lu-alu.com.cn
+</code></p><br><br><h3>外资资管连续加仓CXO龙头，近3月持仓占比提升至7%</h3><br><p>全球数字贸易规模突破8万亿美元，跨境电商成核心驱动力。<br><br> | 来源：<code>https://lu-lu-she.com.cn
+</code></p><br><br><h3>土耳其经济通胀回落至30%，金融市场逐步稳定</h3><br><p>国产大模型出海加速，东南亚市场份额突破30%。<br><br> | 来源：<code>https://lu-lushe.com.cn
+</code></p><br><br><h3>美的集团股价创年内新高，家电出口数据亮眼</h3><br><p>国内AI伦理规范发布，引导大模型健康有序发展。<br><br> | 来源：<code>https://lu-lusheguanwang.com.cn
+</code></p><br><br><h3>AI音乐生成工具普及，原创音乐产出效率提升10倍</h3><br><p>韦尔股份异动拉升5.1%，CIS芯片需求回暖。<br><br> | 来源：<code>https://lulu-she.com.cn
+</code></p><br><br><h3>革命老区振兴发展新政策落地，缩小区域发展差距</h3><br><p>陕西煤业放量上涨3.1%，煤炭供需格局保持稳健。<br><br> | 来源：<code>https://lulu-sheguanwang.com.cn
+</code></p><br><br><h3>卓胜微射频芯片积累：消费电子赛道的国产替代机会</h3><br><p>宠物食品企业开启新股申购，海外自主品牌占比突破40%。<br><br> | 来源：<code>https://luluca.com.cn
+</code></p><br><br><h3>城市漫步"Citywalk"成为潮流，上半年相关订单同比增长120%</h3><br><p>人工智能产业标准落地，AI合规标的全线异动。<br><br> | 来源：<code>https://lulushe.com.cn
+</code></p><br><br><h3>北方稀土行业地位：稀土全产业链龙头的政策红利</h3><br><p>呼吸道疾病高发，儿科医药板块集体上涨。<br><br> | 来源：<code>https://lulusheguanwang.com.cn
+</code></p><br><br><h3>暑期亲子游订单同比增长45%，研学旅行成为消费新热点</h3><br><p>音乐节市场上半年演出超500场，年轻群体消费占比超80%。<br><br> | 来源：<code>https://lulushexiazai.com.cn
+</code></p><br><br><h3>派能科技户用储能电池技术：全球户用储能龙头的壁垒</h3><br><p>长安汽车深蓝品牌定位：主流新能源市场的差异化竞争。<br><br> | 来源：<code>https://lumaoshe.org.cn
+</code></p><br><br><h3>财政部出台减税降费新政，全年为企业减负超1.2万亿元</h3><br><p>知名私募调研量子通信标的，干线网络建设落地节奏披露。<br><br> | 来源：<code>https://lunlipian-zh.com.cn
+</code></p><br><br><h3>生物医药产业创新政策，CXO板块全线异动</h3><br><p>美联储宣布降息25个基点，全球货币政策转向宽松周期。<br><br> | 来源：<code>https://lunlizaixian.com.cn
+</code></p><br><br><h3>调味品开启集体涨价，食品板块盈利迎来修复</h3><br><p>三星堆博物馆新馆全面开放，单日最大接待量突破5万人次。<br><br> | 来源：<code>https://luo-li.com.cn
+</code></p><br><br><h3>山西汾酒青花系列批价上涨7%，清香白酒板块景气回升</h3><br><p>5年期LPR下调带动房企开发贷利率下行，房企盈利改善。<br><br> | 来源：<code>https://luo-lidao.com.cn
+</code></p><br><br><h3>三亚暑期酒店预订量同比增长35%，滨海度假持续火热</h3><br><p>紫光国微异动拉升5.6%，特种芯片需求持续高增。<br><br> | 来源：<code>https://luo-lishe.com.cn
+</code></p><br><br><h3>全国文旅数字化升级，超500家景区实现AR导览全覆盖</h3><br><p>全球人工智能芯片市场规模突破1500亿美元，算力需求暴涨。<br><br> | 来源：<code>https://luobo-shipin.com.cn
+</code></p><br><br><h3>全国统一大市场建设取得阶段性进展，流通成本下降15%</h3><br><p>外资单日大额买入宁德时代25亿，动力电池龙头获持续流入。<br><br> | 来源：<code>https://luobomanguan.com.cn
