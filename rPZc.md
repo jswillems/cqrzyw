@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分07秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>美的集团全球化运营：家电龙头的海外市场拓展路径</h3><br><p>养老金现身特高压龙头调研，海外工程落地节奏引热议。<br><br> | 来源：<code>https://91dongman.cn
+</code></p><br><br><h3>双汇发展肉制品龙头优势：屠宰+肉制品的协同价值</h3><br><p>动力电池级碳酸锂报价单日上涨2000元/吨，产业链回暖信号显现。<br><br> | 来源：<code>https://91guochan.com.cn
+</code></p><br><br><h3>宠物友好景区数量破千，携宠出游成为家庭消费新选择</h3><br><p>中国男子跳高选手跳出2米40，打破尘封28年全国纪录。<br><br> | 来源：<code>https://91heiliaochigua.com.cn
+</code></p><br><br><h3>全国文化产业园区超3000家，集聚效应带动创意产业发展</h3><br><p>中天科技放量上涨4.7%，海缆+储能双轮驱动。<br><br> | 来源：<code>https://91kanpianwangzhanzaixianguankan.com.cn
+</code></p><br><br><h3>汽车出口数据亮眼：自主车企、零部件的业绩增量分析</h3><br><p>良渚古城遗址新发现大型水利工程，实证5000年文明史。<br><br> | 来源：<code>https://91kanwangyeban.cn
+</code></p><br><br><h3>杀菌剂价格上调10%，农药细分板块迎来行情</h3><br><p>新希望异动拉升3.9%，生猪出栏量持续高增。<br><br> | 来源：<code>https://91kanwangyeban.com.cn
+</code></p><br><br><h3>卓胜微射频芯片积累：消费电子赛道的国产替代机会</h3><br><p>存款利率下调推动居民储蓄搬家，权益市场增量资金入场。<br><br> | 来源：<code>https://91kuaihuolin.cn
+</code></p><br><br><h3>中国男子体操队世锦赛团体夺冠，重回世界巅峰</h3><br><p>三一重工涨超4.1%，海外工程机械订单高增。<br><br> | 来源：<code>https://91liulanqi.cn
+</code></p><br><br><h3>全球区块链产业规模突破万亿美元，Web3.0应用落地加速</h3><br><p>万科A核心城市去化超预期，单季业绩预告环比改善。<br><br> | 来源：<code>https://91liulanqi.com.cn
+</code></p><br><br><h3>中原高速异动拉升2.2%，河南路网业务边际改善</h3><br><p>瑞士经济温和增长，金融和高端制造业表现稳定。<br><br> | 来源：<code>https://91liulanqiwangye.com.cn
+</code></p><br><br><h3>游资知名席位联手买入中远海控7500万，集运标的获追捧</h3><br><p>中东产油国延长减产协议，国际油价维持温和上涨态势。<br><br> | 来源：<code>https://91manhua.cn
+</code></p><br><br><h3>浪潮信息算力生态优势：AI服务器龙头的产业链协同能力</h3><br><p>体育赛事与全民健身（100条）。<br><br> | 来源：<code>https://91manhua.com.cn
+</code></p><br><br><h3>自由贸易试验区扩围，自贸港本地股异动</h3><br><p>中国自行车队世锦赛夺得金牌，场地自行车项目实现突破。<br><br> | 来源：<code>https://91mianfeiban.com.cn
+</code></p><br><br><h3>东方雨虹渠道优势：建材龙头的全国化布局与品牌溢价</h3><br><p>WTT新乡世界杯，孙颖莎卫冕女单冠军实现赛季大满贯。<br><br> | 来源：<code>https://91n-com.com.cn
+</code></p><br><br><h3>1年期MLF利率下调带动全市场利率下行，债券牛市延续</h3><br><p>国电南瑞放量上涨3.8%，电网自动化业务高增。<br><br> | 来源：<code>https://91ncc.com.cn
+</code></p><br><br><h3>云南暑期游订单破3000万，文旅收入同比增长85%</h3><br><p>楚天高速放量上涨2.0%，湖北区域车流量持续增长。<br><br> | 来源：<code>https://91ncn.com.cn
+</code></p><br><br><h3>山西汾酒青花系列批价上涨7%，清香白酒板块景气回升</h3><br><p>中国铁建异动拉升2.7%，海外项目落地加速。<br><br> | 来源：<code>https://91ncom.cn
+</code></p><br><br><h3>中国神华煤炭量价齐升，前三季度业绩预增超15%</h3><br><p>公募基金集体到访钙钛矿光伏企业，量产进度超市场预期。<br><br> | 来源：<code>https://91ncom.com.cn
+</code></p><br><br><h3>江铃汽车新能源轻卡高增，单季业绩预告超预期</h3><br><p>QFII集中调研乳制品龙头，高端产品占比提升至45%。<br><br> | 来源：<code>https://91ncome2808b.com.cn
+</code></p><br><br><h3>甘肃建投涨超3.0%，一带一路西北基建项目推进</h3><br><p>北向资金举牌广告营销龙头，AI营销高增获外资持续流入。<br><br> | 来源：<code>https://91ncon.com.cn
