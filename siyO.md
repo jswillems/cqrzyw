@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分29秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>山西汾酒青花系列批价上涨7%，清香白酒板块景气回升</h3><br><p>科大讯飞星火大模型V5.0发布，语音识别准确率突破99.8%。<br><br> | 来源：<code>https://tingting-zonghe.com.cn
+</code></p><br><br><h3>极端高温天气来袭，电力运营板块集体拉升</h3><br><p>外资机构席位净买入沪硅产业8000万，硅片龙头获外资加仓。<br><br> | 来源：<code>https://tingtingwuyuetian.com.cn
+</code></p><br><br><h3>桂林山水暑期游热度回升，漓江游船日均发船超200艘</h3><br><p>明阳智能大兆瓦风机优势：海上风电赛道的龙头领先性。<br><br> | 来源：<code>https://tongrenbaodi.com.cn
+</code></p><br><br><h3>海上风电深远海规划，深远海风电板块集体上涨</h3><br><p>三星堆博物馆新馆全面开放，单日最大接待量突破5万人次。<br><br> | 来源：<code>https://tongrenbenzi.com.cn
+</code></p><br><br><h3>海康威视海外市场拓展：AI安防产品的全球份额提升</h3><br><p>降准释放资金补充银行流动性，信贷投放能力显著提升。<br><br> | 来源：<code>https://tongrendongmanwangzhan.org.cn
+</code></p><br><br><h3>国内老年文旅市场升温，银发游订单同比增长70%</h3><br><p>镍价单月上涨11%，不锈钢板块迎来涨价催化。<br><br> | 来源：<code>https://tongrenxiaoshuo.com.cn
+</code></p><br><br><h3>算力需求持续高增：IDC、光模块、服务器的产业链机会</h3><br><p>控股股东耗资5亿大手笔增持AI算力龙头，彰显长期发展信心。<br><br> | 来源：<code>https://tongxue-mama-huaiyun-ting-daduzi.com.cn
+</code></p><br><br><h3>国内高端旅游产品走俏，定制游订单同比增长90%</h3><br><p>特高压工程集中获批，电网设备板块全线异动。<br><br> | 来源：<code>https://tongyanjuru.com.cn
+</code></p><br><br><h3>绿色建材认证政策，绿色建材板块走强</h3><br><p>锦浪科技海外渠道优势：分布式光伏的全球渠道网络壁垒。<br><br> | 来源：<code>https://top-19-vip.com.cn
+</code></p><br><br><h3>央行降准0.5个百分点，释放长期资金超1万亿元支持实体经济</h3><br><p>国产悬疑剧全网播放量突破300亿，现实题材作品广受好评。<br><br> | 来源：<code>https://top-bowansports.com.cn
+</code></p><br><br><h3>全国体育产业总规模上半年突破3.5万亿元，占GDP比重提升</h3><br><p>实控人兜底式增持中药配方颗粒标的，员工参与比例超85%。<br><br> | 来源：<code>https://top-haobo-sports.com.cn
+</code></p><br><br><h3>国际油价回落至75美元/桶，地缘冲突溢价逐步消化</h3><br><p>中国中车异动拉升，一带一路订单持续释放。<br><br> | 来源：<code>https://top-jinbaosports.com.cn
+</code></p><br><br><h3>存量房贷利率下调释放居民现金流，可选消费板块受益</h3><br><p>北向资金连续增持医美耗材龙头，近2月持仓增幅超40%。<br><br> | 来源：<code>https://top-kaiyundianjing.com.cn
+</code></p><br><br><h3>湖南投资涨超2.1%，长沙路桥业务持续向好</h3><br><p>风电塔筒价格单月上涨6%，风电制造环节盈利改善。<br><br> | 来源：<code>https://top-manguan-sports.com.cn
+</code></p><br><br><h3>上半年全国新能源发电量同比增长35%，占全社会用电量比重超20%</h3><br><p>北方稀土异动拉升，稀土永磁行业供需格局优化。<br><br> | 来源：<code>https://top-oubao-sports.com.cn
+</code></p><br><br><h3>央行降准降息组合拳落地，A股市场迎来全面估值修复</h3><br><p>硅锰价格单月上涨9%，铁合金板块盈利改善。<br><br> | 来源：<code>https://top-worldcup-betting.com
+</code></p><br><br><h3>闻泰科技ODM+半导体双轮驱动：平台型企业的成长逻辑</h3><br><p>容百科技高镍正极技术：锂电高镍化趋势下的龙头受益。<br><br> | 来源：<code>https://top-worldcup-odds.com
+</code></p><br><br><h3>降准资金定向支持三农，农业板块迎来流动性利好</h3><br><p>降准释放长期资金支持新能源，绿电板块迎来定向利好。<br><br> | 来源：<code>https://top-yytiyu.com.cn
+</code></p><br><br><h3>智飞生物异动拉升4.9%，疫苗产品批签发量回升</h3><br><p>头部机构组团到访医美耗材龙头，新品获批进度超预期。<br><br> | 来源：<code>https://toupai-shipin.com.cn
+</code></p><br><br><h3>全国碳排放权交易市场成交额突破200亿元，碳定价机制完善</h3><br><p>海天味业涨超3.5%，调味品行业需求复苏。<br><br> | 来源：<code>https://toupai-zipai.com.cn
