@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分27秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>美联储降息预期提前落地，黄金价格创历史新高</h3><br><p>璞泰来负极材料盈利改善，前三季度业绩预增超40%。<br><br> | 来源：<code>https://niunaipianku.com.cn
+</code></p><br><br><h3>机构席位联手买入三一重工3亿，工程机械龙头获资金布局</h3><br><p>义务教育优质均衡创建推进，千个县区通过国家级评估。<br><br> | 来源：<code>https://nu-gong.com.cn
+</code></p><br><br><h3>多地推出“文旅+农业”融合项目，采摘游订单同比增长80%</h3><br><p>全国医保目录新增126种新药，涵盖多款罕见病特效药。<br><br> | 来源：<code>https://nu-lu-nan-chugui-bi-qu-ge-jian-jun-1.com.cn
+</code></p><br><br><h3>文旅部推出100条乡村精品线路，带动县域文旅消费</h3><br><p>国内首款7nm芯片量产，先进制程产业链异动。<br><br> | 来源：<code>https://nu-nu.com.cn
+</code></p><br><br><h3>多地推出“文旅+科技”项目，元宇宙景区落地超100家</h3><br><p>保险资管扎堆调研煤炭智能化龙头，煤矿智能化改造渗透率。<br><br> | 来源：<code>https://nuan-nuan-ai-shipin-mianfei.com.cn
+</code></p><br><br><h3>北向资金举牌碳化硅企业，车规级半导体获外资重仓</h3><br><p>磷肥价格单月上涨8%，磷化工龙头盈利改善。<br><br> | 来源：<code>https://nutong.com.cn
+</code></p><br><br><h3>洋河股份梦之蓝品牌升级：次高端赛道的份额扩张逻辑</h3><br><p>沪股通席位单日买入中国平安4亿，大金融龙头获外资增持。<br><br> | 来源：<code>https://nuwangtiaojiao.com.cn
+</code></p><br><br><h3>美联储降息预期升温，全球权益资产联动走强</h3><br><p>天齐锂业触底反弹，超跌后的修复空间测算。<br><br> | 来源：<code>https://nuxingluoti.com.cn
+</code></p><br><br><h3>保险资管扎堆调研养老产业标的，养老社区入住率数据披露</h3><br><p>美的集团海外收入高增，前三季度业绩预增超25%。<br><br> | 来源：<code>https://nuyouwang.com.cn
+</code></p><br><br><h3>锂价连续反弹三个月，锂矿板块集体走强</h3><br><p>林业碳汇交易政策，林业运营标的全线异动。<br><br> | 来源：<code>https://od-sports-pro.com.cn
+</code></p><br><br><h3>韦尔股份异动拉升5.1%，CIS芯片需求回暖</h3><br><p>全球区块链产业规模突破万亿美元，Web3.0应用落地加速。<br><br> | 来源：<code>https://oftuun.cn
+</code></p><br><br><h3>多地优化楼市限购政策，取消二环外住房限购限制</h3><br><p>全国风电发电量上半年同比增长38%，绿电交易规模突破2000亿千瓦时。<br><br> | 来源：<code>https://open-site-vip.com.cn
+</code></p><br><br><h3>璞泰来涨超5.0%，负极材料行业格局优化</h3><br><p>2026年暑期文旅总收入突破2万亿，创历史同期新高。<br><br> | 来源：<code>https://ou-meirihan.com.cn
+</code></p><br><br><h3>薯片产品价格上调4%，零食板块迎来涨价催化</h3><br><p>保险资管扎堆调研航空发动机标的，量产交付进度引关注。<br><br> | 来源：<code>https://oumei-a-v.com
+</code></p><br><br><h3>登海种业放量上涨4.0%，玉米种子需求持续向好</h3><br><p>中国水球队世锦赛闯入八强，水上集体项目进步显著。<br><br> | 来源：<code>https://oumei-mv.com.cn
+</code></p><br><br><h3>钴价连续上涨13%，3C电池板块盈利提升</h3><br><p>蒙牛乳业低温奶布局：乳制品行业第二增长曲线解析。<br><br> | 来源：<code>https://oumeijingpin.com.cn
+</code></p><br><br><h3>中国船舶全球竞争力：造船行业龙头的订单与盈利展望</h3><br><p>山东高速放量上涨2.7%，路网资产盈利稳健。<br><br> | 来源：<code>https://oumeiquyi.com.cn
+</code></p><br><br><h3>青岛暑期滨海旅游订单同比增长40%，海滨城市人气高涨</h3><br><p>德国工业产出环比增长1.2%，制造业显现复苏迹象。<br><br> | 来源：<code>https://oumeiwang.com.cn
+</code></p><br><br><h3>四川路桥异动拉升3.8%，四川区域基建订单爆发</h3><br><p>全国居民恩格尔系数降至28.5%，消费结构持续优化升级。<br><br> | 来源：<code>https://oumeiwuma.com.cn
+</code></p><br><br><h3>产业资本集中增持AI教育龙头，付费用户高增获资本布局</h3><br><p>法律大模型助力普法，AI法律咨询覆盖千万基层群众。<br><br> | 来源：<code>https://oumeiyiquerqu.com.cn
