@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分13秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国红树林面积增至3万公顷，成为海洋生态保护标杆</h3><br><p>全国PPI同比由负转正，工业企业盈利预期持续改善。<br><br> | 来源：<code>https://hq-biyi-tiyu.com.cn
+</code></p><br><br><h3>中国橄榄球队首次晋级亚运会四强，项目普及度快速提升</h3><br><p>葛洲坝水电工程技术：全球水电建设龙头的技术积累。<br><br> | 来源：<code>https://hq-fbsports.com.cn
+</code></p><br><br><h3>全国夜间文旅消费集聚区破200个，点亮城市夜经济</h3><br><p>赣粤高速涨超2.3%，江西区域车流量稳步提升。<br><br> | 来源：<code>https://hq-jb-tiyu.com.cn
+</code></p><br><br><h3>大模型在水利领域应用，洪水预警提前量提升至72小时</h3><br><p>美联储降息后全球流动性宽松，成长板块估值抬升。<br><br> | 来源：<code>https://hq-leisu-sports.com.cn
+</code></p><br><br><h3>定向降息支持制造业高端化，工业母机板块获定向利好</h3><br><p>国际铜价持续上行，铜业板块标的全线异动。<br><br> | 来源：<code>https://hq-qiusu-sports.com.cn
+</code></p><br><br><h3>紫光国微特种芯片优势：军工电子赛道的隐形冠军解析</h3><br><p>美联储宣布降息25个基点，全球货币政策转向宽松周期。<br><br> | 来源：<code>https://hq-xk-yule.com.cn
+</code></p><br><br><h3>光伏行业产能置换政策落地，落后产能出清标的异动</h3><br><p>地方国资战略入股氢能燃料电池标的，助力商用车推广落地。<br><br> | 来源：<code>https://http91com.cn
+</code></p><br><br><h3>全国荒漠化土地面积连续20年缩减，沙化治理成效突出</h3><br><p>产业资本连续增持储能温控龙头，产业链上下游协同布局。<br><br> | 来源：<code>https://httpswww17ccom.com.cn
+</code></p><br><br><h3>亨通光电海缆业务放量，前三季度业绩预增超45%</h3><br><p>海外资管组团调研智能驾驶标的，城市NOA落地节奏披露。<br><br> | 来源：<code>https://httpwww17c.com.cn
+</code></p><br><br><h3>北向资金大幅增持比亚迪，AH股同步获外资加仓</h3><br><p>智能制造政策升级，机器人自动化板块集体上涨。<br><br> | 来源：<code>https://huahualove.org.cn
+</code></p><br><br><h3>降准资金定向支持绿色能源，光伏风电板块获流动性利好</h3><br><p>全国高血压患者管理人数突破1亿人，规范管理率达90%。<br><br> | 来源：<code>https://huang-jiujiu.com.cn
+</code></p><br><br><h3>蒙牛乳业放量上涨3.7%，低温奶业务增速亮眼</h3><br><p>大股东耗资3.8亿增持钙钛矿设备标的，助力核心设备研发。<br><br> | 来源：<code>https://huang-wed.cn
+</code></p><br><br><h3>亨通光电涨超4.4%，海洋能源业务贡献增量</h3><br><p>全国国家公园数量增至15个，保护面积超23万平方公里。<br><br> | 来源：<code>https://huang-youdaquan.com.cn
+</code></p><br><br><h3>AI个性化推荐大模型升级，用户体验提升同时避免信息茧房</h3><br><p>体育旅游市场爆发，上半年马拉松赛事带动旅游消费超百亿。<br><br> | 来源：<code>https://huanggua-shipin.cn
+</code></p><br><br><h3>车载激光雷达企业登陆科创板，量产交付进度超市场预期</h3><br><p>钾肥价格连续上涨10%，钾肥板块盈利弹性释放。<br><br> | 来源：<code>https://huanggua-shipinxiazai.com.cn
+</code></p><br><br><h3>化肥价格集体上涨，农资板块迎来产品涨价催化</h3><br><p>浙江建投区域基建订单饱满，单季业绩预告超预期。<br><br> | 来源：<code>https://huanggua-wangzhan.com.cn
+</code></p><br><br><h3>世界乒乓球锦标赛中国队包揽5金，延续国乒辉煌</h3><br><p>科大讯飞高位震荡，分歧阶段的关键位与风控思路。<br><br> | 来源：<code>https://huanggua-yingyuan.com.cn
+</code></p><br><br><h3>光伏组件出口创历史新高，光伏海外链标的走强</h3><br><p>1年期MLF利率下调带动全市场利率下行，债券牛市延续。<br><br> | 来源：<code>https://huangguachuanmei.com.cn
+</code></p><br><br><h3>温氏股份管理优化：养殖行业底部的经营效率提升逻辑</h3><br><p>晶澳科技全球化运营：光伏组件龙头的海外市场份额扩张。<br><br> | 来源：<code>https://huangguan-sports-pro.com.cn
+</code></p><br><br><h3>海外资管组团调研光伏支架标的，跟踪支架海外渗透率提升</h3><br><p>美联储连续降息后美元走弱，原油价格迎来趋势性反弹。<br><br> | 来源：<code>https://huangguanqiutan.com.cn
