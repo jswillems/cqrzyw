@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分18秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>宁沪高速优质路网资产：长三角公路龙头的长期配置价值</h3><br><p>头部券商调研固态电池标的，下一代技术落地时间表曝光。<br><br> | 来源：<code>https://top-19-vip.com.cn
+</code></p><br><br><h3>游戏出海企业登陆创业板，海外流水占比超70%引资金热捧</h3><br><p>氢能燃料电池龙头登陆创业板，商用车推广订单同比大增。<br><br> | 来源：<code>https://top-bowansports.com.cn
+</code></p><br><br><h3>海缆价格上调5%，海缆龙头订单盈利弹性提升</h3><br><p>房贷利率下限进一步放宽，刚需购房成本大幅下降。<br><br> | 来源：<code>https://top-haobo-sports.com.cn
+</code></p><br><br><h3>三元正极材料价格上调6%，锂电材料产业链景气回升</h3><br><p>腾讯混元大模型企业服务升级，助力政务、金融行业数字化。<br><br> | 来源：<code>https://top-jinbaosports.com.cn
+</code></p><br><br><h3>定向降息支持绿色电力，绿电运营板块获定向利好</h3><br><p>6G技术研发加速：通信设备、射频器件的布局窗口。<br><br> | 来源：<code>https://top-kaiyundianjing.com.cn
+</code></p><br><br><h3>深股通席位单日买入金龙汽车4300万，客车标的获增持</h3><br><p>恩捷股份隔膜技术壁垒：锂电池隔膜全球龙头的份额优势。<br><br> | 来源：<code>https://top-manguan-sports.com.cn
+</code></p><br><br><h3>西安大唐不夜城暑期日均游客量突破30万人次，夜间文旅火爆</h3><br><p>银保监会出台新政，进一步降低实体经济融资成本。<br><br> | 来源：<code>https://top-oubao-sports.com.cn
+</code></p><br><br><h3>医疗器械创新绿色通道，创新器械板块异动</h3><br><p>美联储降息后美债收益率下行，外资回流中国权益市场。<br><br> | 来源：<code>https://top-worldcup-betting.com
+</code></p><br><br><h3>外资单日加仓三一重工12亿，工程机械龙头获外资回流</h3><br><p>海上风电大基地集中开工，海缆产业链标的上涨。<br><br> | 来源：<code>https://top-worldcup-odds.com
+</code></p><br><br><h3>伊利股份乳制品量价齐升，前三季度业绩预增超20%</h3><br><p>西班牙经济增速达2.8%，南欧经济表现亮眼。<br><br> | 来源：<code>https://top-yytiyu.com.cn
+</code></p><br><br><h3>人形机器人核心标的启动申购，发行价对应估值具备吸引力</h3><br><p>AI智能写作工具普及，内容创作者产出效率提升2倍。<br><br> | 来源：<code>https://toupai-shipin.com.cn
+</code></p><br><br><h3>慢就是快：在高确定性标的上持仓，远比追热点赚得稳</h3><br><p>飞天茅台批价突破2900元，白酒龙头盈利超预期。<br><br> | 来源：<code>https://toupai-zipai.com.cn
+</code></p><br><br><h3>青岛暑期滨海旅游订单同比增长40%，海滨城市人气高涨</h3><br><p>东方电缆异动拉升5.2%，海缆订单持续落地。<br><br> | 来源：<code>https://toupaizipai.com.cn
+</code></p><br><br><h3>储能装机强制配比政策升级，储能产业链标的拉升</h3><br><p>丽江暑期民宿入住率达95%，云南文旅市场持续回暖。<br><br> | 来源：<code>https://tu-tu-jiang.com.cn
+</code></p><br><br><h3>天合光能N型技术优势：光伏行业技术迭代下的领先地位</h3><br><p>国产大模型出海加速，东南亚市场份额突破30%。<br><br> | 来源：<code>https://tv91.com.cn
+</code></p><br><br><h3>量子信息产业规划发布，量子通信标的全线拉升</h3><br><p>藏羚羊种群数量突破30万只，从濒危物种恢复至无危。<br><br> | 来源：<code>https://uzcnby-vip-web.com.cn
+</code></p><br><br><h3>内蒙古草原暑期游火爆，那达慕大会吸引超百万游客参与</h3><br><p>地方国资战略入股种业龙头，助力生物育种商业化落地。<br><br> | 来源：<code>https://vip-188tiyu-web.com.cn
+</code></p><br><br><h3>宇通客车全球客车龙头优势：新能源客车的全球份额扩张</h3><br><p>民宿行业规范发展政策，乡村旅游标的全线拉升。<br><br> | 来源：<code>https://vip-9170-jinsha.com
+</code></p><br><br><h3>NBA季后赛中国球员首次夺冠，创造亚洲篮球历史</h3><br><p>浙江建投异动拉升4.7%，浙江共同富裕区基建加码。<br><br> | 来源：<code>https://vip-bw-tiyu.com.cn
+</code></p><br><br><h3>循环经济发展规划，资源回收标的全线拉升</h3><br><p>圣邦股份模拟芯片布局：国产模拟芯片龙头的成长路径。<br><br> | 来源：<code>https://vip-fb-tiyu.com.cn
