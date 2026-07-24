@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时23分21秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>实控人承诺6个月内不减持机器人控制器标的，稳定股价</h3><br><p>海尔智家高端化布局：卡萨帝品牌的溢价能力解析。<br><br> | 来源：<code>www.duioo.com
+</code></p><br><br><h3>QFII新进跨境电商龙头，海外机构看好出口高增长逻辑</h3><br><p>全国智慧健身器材普及至社区，运动数据实时上传健康平台。<br><br> | 来源：<code>www.zheejia.com
+</code></p><br><br><h3>生物医药产业创新政策，CXO板块全线异动</h3><br><p>容百科技高镍正极技术：锂电高镍化趋势下的龙头受益。<br><br> | 来源：<code>www.kingslawfirm.com
+</code></p><br><br><h3>央行加大结构性降息力度，精准支持数字经济领域</h3><br><p>仓位管理是生存之本：满仓梭哈的人，迟早会被市场淘汰。<br><br> | 来源：<code>www.longnancun.com
+</code></p><br><br><h3>全国工业用水重复利用率达92%，节水型工业体系建成</h3><br><p>天津建投异动拉升2.8%，天津基建投资持续增长。<br><br> | 来源：<code>www.ym5184.com
+</code></p><br><br><h3>中际旭创800G光模块放量，前三季度业绩预增130%</h3><br><p>中国田径世锦赛斩获5金，男子百米接力打破亚洲纪录。<br><br> | 来源：<code>www.lvyuepai.com
+</code></p><br><br><h3>社保基金现身镁合金龙头，汽车轻量化订单同比翻倍</h3><br><p>沃森生物疫苗管线布局：创新疫苗龙头的研发投入回报。<br><br> | 来源：<code>www.youngstrong.cn
+</code></p><br><br><h3>知名私募调研钙钛矿设备标的，核心设备交付周期缩短</h3><br><p>知名私募大手笔增持乳制品龙头，持仓占比达3.5%。<br><br> | 来源：<code>www.41yvs.cn
+</code></p><br><br><h3>电源芯片价格上涨7%，模拟芯片板块景气回升</h3><br><p>头部券商调研固态电池标的，下一代技术落地时间表曝光。<br><br> | 来源：<code>www.hospitalcdm.cn
+</code></p><br><br><h3>高管团队集体调研后集中增持6G通信标的，合计增持超1亿</h3><br><p>中国中冶放量上涨2.9%，新能源冶金订单爆发。<br><br> | 来源：<code>www.mayilt.cn
+</code></p><br><br><h3>储能大项目集中并网，大储板块迎来行情催化</h3><br><p>纯碱价格连续上涨12%，玻璃产业链成本端压力边际缓解。<br><br> | 来源：<code>www.ebtea.cn
+</code></p><br><br><h3>全国文化产业园区超3000家，集聚效应带动创意产业发展</h3><br><p>投资是认知的变现：你永远赚不到超出自己认知范围的钱。<br><br> | 来源：<code>www.seodoc.cn
+</code></p><br><br><h3>北方稀土稀土量价齐升，前三季度业绩预增超50%</h3><br><p>紫金矿业创阶段新高，黄金有色板块沿趋势上行。<br><br> | 来源：<code>www.skillrace.cn
+</code></p><br><br><h3>温氏股份禽畜双主业布局：养殖行业的稳健成长逻辑</h3><br><p>美联储连续第二次降息，北向资金单日净流入超百亿。<br><br> | 来源：<code>www.bibistar.cn
+</code></p><br><br><h3>登海种业玉米种子优势：国内玉米种子赛道的龙头价值</h3><br><p>中兴通讯涨超4%，6G技术研发进度超市场预期。<br><br> | 来源：<code>www.jingnews.cn
+</code></p><br><br><h3>房地产融资白名单出台，优质房企板块走强</h3><br><p>软件企业所得税优惠延续，国产软件板块异动。<br><br> | 来源：<code>www.hrnhug.cn
+</code></p><br><br><h3>糖果产品价格上调6%，休闲食品全产业链景气回升</h3><br><p>沙漠光伏基地建设规划，大基地光伏标的全线异动。<br><br> | 来源：<code>www.cqxsx.cn
+</code></p><br><br><h3>5年期LPR超预期下调，地产链迎来全面行情催化</h3><br><p>存量房贷利率集中下调，居民消费能力有望边际改善。<br><br> | 来源：<code>www.gmsz.cn
+</code></p><br><br><h3>机构资金净买入宁德时代12亿，核心资产获大资金加仓</h3><br><p>山西路桥放量上涨3.2%，山西交通基建投资加码。<br><br> | 来源：<code>0315etu.com
+</code></p><br><br><h3>三一重工海外收入翻倍，单季业绩预告超预期</h3><br><p>铁矿石价格反弹10%，铁矿上市公司盈利边际改善。<br><br> | 来源：<code>streamnet-chain.com
