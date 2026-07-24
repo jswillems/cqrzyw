@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分15秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>宝钢股份产品结构升级：高端钢铁的盈利稳定性分析</h3><br><p>登海种业玉米种子需求超预期，单季业绩预告超预期。<br><br> | 来源：<code>https://tiantangjinman.com.cn
+</code></p><br><br><h3>人民币汇率升值叠加美联储降息，航空造纸板块集体异动</h3><br><p>中秋国庆旅游数据超预期，旅游酒店板块异动。<br><br> | 来源：<code>https://tiantangmanhuawang.com.cn
+</code></p><br><br><h3>游资顶级席位打板梅花生物5200万，氨基酸标的获热炒</h3><br><p>海康威视W底形态确立，底部反转信号明确。<br><br> | 来源：<code>https://tiantian-dongman.com.cn
+</code></p><br><br><h3>外资持续流入万科A，地产龙头外资持仓占比突破2%</h3><br><p>产业资本集中增持休闲食品龙头，线下渠道复购改善获布局。<br><br> | 来源：<code>https://tiantian-shuang-yeye-shuang.com.cn
+</code></p><br><br><h3>芬兰经济走出衰退，绿色技术产业拉动复苏</h3><br><p>美联储降息25BP，中概股集体暴涨带动A股联动。<br><br> | 来源：<code>https://tiantiandongmanwang.com.cn
+</code></p><br><br><h3>券商研究所扎堆调研虚拟电厂标的，订单爆发式增长披露</h3><br><p>中国西电异动拉升3.6%，输配电设备集团整合加速。<br><br> | 来源：<code>https://tiantianwang.com.cn
+</code></p><br><br><h3>锂价连续反弹15%，锂矿板块迎来趋势性行情启动</h3><br><p>天津建投异动拉升2.8%，天津基建投资持续增长。<br><br> | 来源：<code>https://tiantianzonghewang.com.cn
+</code></p><br><br><h3>国内AI算力网络国家枢纽节点全部建成，实现算力全国调度</h3><br><p>国内首款7nm芯片量产，先进制程产业链异动。<br><br> | 来源：<code>https://tingting-se-tu.com.cn
+</code></p><br><br><h3>牧原股份疫病防控能力：生猪养殖龙头的核心经营壁垒</h3><br><p>大模型在能源领域应用，电网调度效率提升25%。<br><br> | 来源：<code>https://tingting-zonghe.com.cn
+</code></p><br><br><h3>全面降准叠加定向降息，宽货币向宽信用传导加速</h3><br><p>国产游戏上半年出海营收突破80亿美元，文化输出能力增强。<br><br> | 来源：<code>https://tingtingwuyuetian.com.cn
+</code></p><br><br><h3>知名私募大手笔增持TOPCon电池标的，持仓占比达4%</h3><br><p>存量房贷利率下调后居民消费回升，旅游酒店板块受益。<br><br> | 来源：<code>https://tongrenbaodi.com.cn
+</code></p><br><br><h3>隆平高科转基因优势：种业商业化政策放开下的龙头受益</h3><br><p>中国书法申遗成功，传统艺术走向世界舞台。<br><br> | 来源：<code>https://tongrenbenzi.com.cn
+</code></p><br><br><h3>矿产资源勘探政策，地质勘查标的全线异动</h3><br><p>社保基金现身镁合金龙头，汽车轻量化订单同比翻倍。<br><br> | 来源：<code>https://tongrendongmanwangzhan.org.cn
+</code></p><br><br><h3>赣锋锂业固态电池布局：全球锂矿龙头的技术储备优势</h3><br><p>外资机构席位净买入恒瑞医药2.4亿，创新药龙头获外资加仓。<br><br> | 来源：<code>https://tongrenxiaoshuo.com.cn
+</code></p><br><br><h3>上半年全国实际使用外资同比增长3.1%，高技术产业占比超40%</h3><br><p>国足世预赛客场2-1逆转日本，创造历史首次客场击败对手。<br><br> | 来源：<code>https://tongxue-mama-huaiyun-ting-daduzi.com.cn
+</code></p><br><br><h3>动力电池级碳酸锂报价单日上涨2000元/吨，产业链回暖信号显现</h3><br><p>5年期LPR下调后地产链情绪回暖，地产服务板块集体上涨。<br><br> | 来源：<code>https://tongyanjuru.com.cn
+</code></p><br><br><h3>全国船舶排放控制区扩大，海运污染减排成效突出</h3><br><p>海尔智家高端化布局：白电龙头的品牌溢价能力。<br><br> | 来源：<code>https://top-19-vip.com.cn
+</code></p><br><br><h3>上半年全国显示面板出口同比增长21%，电子产业优势巩固</h3><br><p>超230家机构到访工业软件龙头，研发设计软件付费转化率。<br><br> | 来源：<code>https://top-bowansports.com.cn
+</code></p><br><br><h3>国务院出台6方面24条政策，进一步扩大对外开放</h3><br><p>美联储第三次降息落地，全球风险偏好显著提升。<br><br> | 来源：<code>https://top-haobo-sports.com.cn
+</code></p><br><br><h3>赛力斯华为车型销量破10万，单季业绩减亏超预期</h3><br><p>中国保龄球队亚运会夺得金牌，小众项目实现历史性突破。<br><br> | 来源：<code>https://top-jinbaosports.com.cn
