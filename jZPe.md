@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时22分58秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>海外对冲基金组团调研预制菜龙头，B端渠道扩张节奏披露</h3><br><p>AI图像识别技术突破，缺陷检测准确率超99.5%。<br><br> | 来源：<code>www.cunyinbao.cn
+</code></p><br><br><h3>专精特新企业扶持政策，专精特新标的全线异动</h3><br><p>全国小微企业贷款余额突破60万亿元，融资成本进一步下降。<br><br> | 来源：<code>www.iamz.cn
+</code></p><br><br><h3>美伊冲突出现缓和信号，双方开启间接谈判寻求停火路径</h3><br><p>钯价连续上涨9%，汽车尾气催化板块盈利改善。<br><br> | 来源：<code>www.yifanwu.cn
+</code></p><br><br><h3>降准释放资金定向支持基建，基建板块迎来流动性利好</h3><br><p>大模型在电力巡检领域应用，缺陷识别效率提升5倍。<br><br> | 来源：<code>www.michaelyang.cn
+</code></p><br><br><h3>伊利股份涨超3.2%，乳制品行业需求回暖</h3><br><p>美联储连续降息后美元走弱，原油价格迎来趋势性反弹。<br><br> | 来源：<code>www.bengcuan.cn
+</code></p><br><br><h3>中国平安权重护盘，指数关键点位的支撑作用凸显</h3><br><p>产业基金组团调研后集中增持存储模组龙头，合计投入超7亿。<br><br> | 来源：<code>www.zn-edu.cn
+</code></p><br><br><h3>北向资金单日净流入超150亿，降息后外资加速入场</h3><br><p>调味品行业标准升级，调味品龙头板块走强。<br><br> | 来源：<code>www.imrok.com.cn
+</code></p><br><br><h3>央行降准降息组合拳落地，A股市场迎来全面估值修复</h3><br><p>QFII集中调研乳制品龙头，高端产品占比提升至45%。<br><br> | 来源：<code>www.shutaotc.cn
+</code></p><br><br><h3>北方华创涨超6.3%，半导体设备国产替代进度提速</h3><br><p>大秦铁路煤炭运输量回升，前三季度业绩预增超20%。<br><br> | 来源：<code>www.easome.cn
+</code></p><br><br><h3>超150家机构到访工业机器人标的，产能利用率突破90%</h3><br><p>外资机构集中调研种业龙头，转基因商业化落地节奏披露。<br><br> | 来源：<code>www.toolzhe.cn
+</code></p><br><br><h3>美联储连续降息后美元走弱，原油价格迎来趋势性反弹</h3><br><p>中国女子冰球队世锦赛升组，重返顶级赛事行列。<br><br> | 来源：<code>www.silvertimes.cn
+</code></p><br><br><h3>五粮液批价上涨5%，次高端白酒板块迎来行情</h3><br><p>隆基绿能涨超5.7%，HPBC组件出货量爆发。<br><br> | 来源：<code>www.ahhaiquan.cn
+</code></p><br><br><h3>大模型在零售领域应用，AI智能选品准确率提升25%</h3><br><p>万科A地产龙头抗风险能力：行业调整期的稳健经营逻辑。<br><br> | 来源：<code>www.3excel.cn
+</code></p><br><br><h3>中国电竞战队斩获英雄联盟S14全球总决赛冠军</h3><br><p>体育产业消费刺激政策，体育消费标的全线异动。<br><br> | 来源：<code>www.81988888.cn
+</code></p><br><br><h3>海外对冲基金集中调研CXO龙头，新签订单增速超预期</h3><br><p>梅花生物氨基酸优势：生物发酵龙头的成本与技术壁垒。<br><br> | 来源：<code>zhongyichufang.cn
+</code></p><br><br><h3>养老金新进PCB龙头，布局AI服务器硬件赛道</h3><br><p>国产科幻电影票房突破50亿元，《流浪地球3》刷新纪录。<br><br> | 来源：<code>muzhien.cn
+</code></p><br><br><h3>人形机器人核心标的启动申购，发行价对应估值具备吸引力</h3><br><p>全国文化和旅游消费试点城市扩围，打造百个消费标杆城市。<br><br> | 来源：<code>jiezhishan.cn
+</code></p><br><br><h3>药明康德MACD金叉，技术指标共振带来布局机会</h3><br><p>全国武夷山国家公园生态监测系统建成，生物多样性数据实时采集。<br><br> | 来源：<code>qinjin365.cn
+</code></p><br><br><h3>公募基金集中调研储能温控龙头，海外客户拓展引关注</h3><br><p>企业贷款利率创历史新低，制造业投资意愿有望回升。<br><br> | 来源：<code>siqiyes.cn
+</code></p><br><br><h3>头部券商到访汽车座椅龙头，新势力车企订单占比突破50%</h3><br><p>保险资管扎堆调研汽车芯片标的，MCU芯片国产替代率突破50%。<br><br> | 来源：<code>siqixue.cn
