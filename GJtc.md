@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分16秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>三一重工海外收入翻倍，单季业绩预告超预期</h3><br><p>新能源汽车出口数据翻倍，整车出口标的集体异动。<br><br> | 来源：<code>https://mamadepengyou.com.cn
+</code></p><br><br><h3>通威股份硅料盈利修复，单季业绩预告环比大增</h3><br><p>全国城市公共交通新能源化率达100%，零排放出行普及。<br><br> | 来源：<code>https://mamahema.com.cn
+</code></p><br><br><h3>全国戒烟服务门诊覆盖所有三甲医院，吸烟率持续下降</h3><br><p>黄山暑期游客量突破250万人次，山岳景区预约制度优化体验。<br><br> | 来源：<code>https://manhuatiantang.com.cn
+</code></p><br><br><h3>新能源汽车换电模式推广政策，换电产业链拉升</h3><br><p>碳化硅衬底标的登陆科创板，6英寸衬底产能全球领先。<br><br> | 来源：<code>https://manhuatong.com.cn
+</code></p><br><br><h3>全国博物馆暑期接待人次破2亿，研学游订单同比翻倍</h3><br><p>北京中轴线申遗进入冲刺阶段，千年古都风貌全面保护。<br><br> | 来源：<code>https://manhuaxiuxiu.cn
+</code></p><br><br><h3>五粮液批价上行逻辑：渠道库存优化下的价格体系修复</h3><br><p>央行表态适时加大政策力度，后续降准降息仍有空间。<br><br> | 来源：<code>https://mantiantang.com.cn
+</code></p><br><br><h3>外资机构席位净买入国电南瑞1.6亿，电网设备龙头获外资加仓</h3><br><p>机构资金联手买入浪潮信息3.3亿，AI服务器龙头获机构抱团。<br><br> | 来源：<code>https://maokuai.com.cn
+</code></p><br><br><h3>紫金矿业创阶段新高，黄金有色板块沿趋势上行</h3><br><p>全国城市节水型社会建设达标率达85%，用水效率提升。<br><br> | 来源：<code>https://maomishequ.cn
+</code></p><br><br><h3>招商银行零售银行优势：国内零售银行龙头的经营质量</h3><br><p>汽车下乡补贴政策出台，自主车企标的全线上涨。<br><br> | 来源：<code>https://mayaluntan.cn
+</code></p><br><br><h3>大模型在环保领域应用，污染源识别准确率超96%</h3><br><p>电感产品价格上涨3%，电子全产业链盈利优化。<br><br> | 来源：<code>https://meilidexiaomitao.com.cn
+</code></p><br><br><h3>MCU芯片价格单月上涨8%，汽车半导体板块盈利改善</h3><br><p>贵州茅台前三季度营收破千亿，业绩预告超预期。<br><br> | 来源：<code>https://meimeidaohang.cn
+</code></p><br><br><h3>超220家机构到访AI教育龙头，付费用户规模环比大增</h3><br><p>广州马拉松开跑，参赛选手破3万全马完赛率创新高。<br><br> | 来源：<code>https://meinu-bei-cao.com.cn
+</code></p><br><br><h3>科达利结构件精密制造：锂电池结构件龙头的全球份额</h3><br><p>大北农异动拉升3.7%，种业业务贡献新增量。<br><br> | 来源：<code>https://meinu-bei-gan.com.cn
+</code></p><br><br><h3>绿电交易规模翻倍，绿电运营板块集体上涨</h3><br><p>存量房贷利率下调后居民消费回升，旅游酒店板块受益。<br><br> | 来源：<code>https://meinu-bei-ri.com.cn
+</code></p><br><br><h3>黎以罗马谈判达成阶段性协议，以军启动南部黎巴嫩撤军</h3><br><p>三安光电涨超4.2%，LED芯片需求边际改善。<br><br> | 来源：<code>https://meinu-beicao.com.cn
+</code></p><br><br><h3>机构专用席位净买入隆基绿能6亿，光伏龙头获长线资金布局</h3><br><p>外资单日加仓三一重工12亿，工程机械龙头获外资回流。<br><br> | 来源：<code>https://meinu-gao-ji.com.cn
+</code></p><br><br><h3>保险资管扎堆调研汽车芯片标的，MCU芯片国产替代率突破50%</h3><br><p>上半年全国机器人产量同比增长25%，智能制造加速推进。<br><br> | 来源：<code>https://meinu-huangsexiaoshuo.com
+</code></p><br><br><h3>3D生成大模型技术突破，1分钟生成高精度工业模型</h3><br><p>机构席位大额买入澜起科技8500万，内存芯片龙头获布局。<br><br> | 来源：<code>https://meinu-wangzhan-se.com.cn
+</code></p><br><br><h3>算力需求持续高增：IDC、光模块、服务器的产业链机会</h3><br><p>全国古籍保护工程完成，超3000万册古籍得到妥善修复。<br><br> | 来源：<code>https://meinubeicao.com.cn
+</code></p><br><br><h3>东方电气风电设备订单爆发，前三季度业绩预增超35%</h3><br><p>QFII大幅加仓预制菜龙头，B端渠道扩张获海外机构看好。<br><br> | 来源：<code>https://meinuluoti.org.cn
