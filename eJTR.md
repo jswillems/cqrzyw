@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分09秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>内蒙古草原暑期游火爆，那达慕大会吸引超百万游客参与</h3><br><p>中国交建海外订单落地，前三季度业绩预增超18%。<br><br> | 来源：<code>https://17cccmeiridasai.com.cn
+</code></p><br><br><h3>生猪价格突破18元/公斤，养殖板块盈利拐点显现</h3><br><p>中航沈飞军机订单饱满，单季业绩预告超预期。<br><br> | 来源：<code>https://17cchigua.com.cn
+</code></p><br><br><h3>5年期LPR超预期下调，地产链迎来全面行情催化</h3><br><p>安琪酵母海外收入爆发，单季业绩预告超预期。<br><br> | 来源：<code>https://17ccn.com.cn
+</code></p><br><br><h3>央行下调再贷款利率，精准支持科技创新领域</h3><br><p>深圳马拉松开跑，3万跑者穿越滨海赛道展现城市活力。<br><br> | 来源：<code>https://17ccom.com.cn
+</code></p><br><br><h3>北向资金连续调研后举牌智能电网标的，外资持续流入</h3><br><p>全国城市污水处理率达98%，污泥无害化处理率超90%。<br><br> | 来源：<code>https://17ccomchigua.com.cn
+</code></p><br><br><h3>成都大运会遗产持续释放，大运场馆全年免费开放超300天</h3><br><p>贵州茅台站稳1700元关口，白酒板块估值修复开启。<br><br> | 来源：<code>https://17ccomgithub.com.cn
+</code></p><br><br><h3>民宿行业合规化推进，全国星级民宿数量突破2万家</h3><br><p>葛洲坝水电工程技术：全球水电建设龙头的技术积累。<br><br> | 来源：<code>https://17ccomqicao.com.cn
+</code></p><br><br><h3>全国200城启动夜间消费节，夜间经济规模突破15万亿</h3><br><p>快递行业监管优化，快递龙头标的全线拉升。<br><br> | 来源：<code>https://17ccomrukou.com.cn
+</code></p><br><br><h3>实控人兜底式增持游戏出海龙头，员工响应参与超预期</h3><br><p>招商银行净息差企稳，前三季度业绩预增超15%。<br><br> | 来源：<code>https://17ccomyiqicao.com.cn
+</code></p><br><br><h3>深高速放量上涨2.5%，深圳区域路网资产优质</h3><br><p>小康股份涨超7.7%，新能源汽车业务盈利修复。<br><br> | 来源：<code>https://17ccomyiqicaozaixian.com.cn
+</code></p><br><br><h3>派能科技涨超7.5%，户用储能电池订单饱满</h3><br><p>全国连锁品牌门店数量上半年同比增长12%，线下消费复苏。<br><br> | 来源：<code>https://17ccwang.com.cn
+</code></p><br><br><h3>基金公司集体到访液冷技术龙头，AI数据中心液冷订单爆发</h3><br><p>多地出台文旅人才扶持政策，引进超万名文旅行业专业人才。<br><br> | 来源：<code>https://17ccyiqicao.com.cn
+</code></p><br><br><h3>全国体育产业总规模上半年突破1.5万亿元，赛事经济火热</h3><br><p>生物育种产业化政策，转基因种业标的走强。<br><br> | 来源：<code>https://17cczaixianguankan.com.cn
+</code></p><br><br><h3>车规级芯片国产替代加速，汽车半导体板块走强</h3><br><p>长鑫存储DDR5产能释放，内存芯片标的集体上涨。<br><br> | 来源：<code>https://17cmeiridasai.com.cn
+</code></p><br><br><h3>中远海控行业周期复盘：集运行业的供需格局长期演变</h3><br><p>重庆路桥异动拉升2.4%，区域路桥业务盈利稳定。<br><br> | 来源：<code>https://17cmocqicaotangxinzaixiankan.com.cn
+</code></p><br><br><h3>“双减”成效显著，校外违规培训机构清零率超98%</h3><br><p>全国长江十年禁渔成效显著，水生生物资源逐步恢复。<br><br> | 来源：<code>https://17cmwang.com.cn
+</code></p><br><br><h3>控股股东耗资5亿大手笔增持AI算力龙头，彰显长期发展信心</h3><br><p>澜起科技异动拉升4.3%，内存接口芯片份额提升。<br><br> | 来源：<code>https://17cnyiqicao.com.cn
+</code></p><br><br><h3>蔚来汽车毛利率转正，单季业绩预告环比大幅改善</h3><br><p>全国远程医疗覆盖所有县域，优质医疗资源下沉至基层。<br><br> | 来源：<code>https://17cnyiqicaochigua.com.cn
+</code></p><br><br><h3>杀菌剂价格上调10%，农药细分板块迎来行情</h3><br><p>实控人邀约收购光刻胶标的，溢价40%发起部分要约收购。<br><br> | 来源：<code>https://17cnyiqicaomeiridasai.com.cn
+</code></p><br><br><h3>长三角一体化新规划落地，长三角本地股集体拉升</h3><br><p>全国国家森林公园数量增至1000个，生态旅游蓬勃发展。<br><br> | 来源：<code>https://17cqicao.com.cn
