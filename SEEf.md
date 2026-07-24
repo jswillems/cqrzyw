@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分18秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>北向资金连续增持液冷技术龙头，AI数据中心需求获外资加仓</h3><br><p>杭州马拉松开跑，3.5万跑者体验钱塘江赛道。<br><br> | 来源：<code>https://17-3-guanyu-xing-jiaoyu-xuanchuanpian.com.cn
+</code></p><br><br><h3>超300家机构扎堆调研AI算力龙头，核心业务数据首次披露</h3><br><p>贵州茅台渠道改革进展：直营占比提升下的盈利弹性测算。<br><br> | 来源：<code>https://17c18qicao.com.cn
+</code></p><br><br><h3>高标准农田建设规划，农田基建板块集体上涨</h3><br><p>国产大模型出海加速，东南亚市场份额突破30%。<br><br> | 来源：<code>https://17caowang.com.cn
+</code></p><br><br><h3>地方国资战略入股氢能燃料电池标的，助力商用车推广落地</h3><br><p>中际旭创再创历史新高，800G光模块份额超70%。<br><br> | 来源：<code>https://17capcc.com.cn
+</code></p><br><br><h3>全国新增10家5A级景区，文旅品质持续升级</h3><br><p>北向资金连续增持智能驾驶龙头，近1月持仓增幅超30%。<br><br> | 来源：<code>https://17ccc.com.cn
+</code></p><br><br><h3>中兴通讯算力业务爆发，单季净利润同比增80%</h3><br><p>平遥古城暑期游客量突破150万人次，晋商文化体验游火热。<br><br> | 来源：<code>https://17cccc.com.cn
+</code></p><br><br><h3>兆易创新存储芯片价格反弹，前三季度业绩预增超70%</h3><br><p>恒力石化炼化盈利修复，前三季度业绩预增超35%。<br><br> | 来源：<code>https://17ccccyiqicao.com.cn
+</code></p><br><br><h3>特变电工新能源盈利高增，单季业绩预告超预期</h3><br><p>国内降息政策出台，地产链标的集体上涨。<br><br> | 来源：<code>https://17ccchigua.com.cn
+</code></p><br><br><h3>中国高尔夫球选手首次夺得美巡赛冠军，实现历史性突破</h3><br><p>全国博物馆暑期接待人次破2亿，研学游订单同比翻倍。<br><br> | 来源：<code>https://17cccmeiridasai.com.cn
+</code></p><br><br><h3>保险资管扎堆调研航空发动机标的，量产交付进度引关注</h3><br><p>多地出台支持民营经济新政，破除市场准入隐性壁垒。<br><br> | 来源：<code>https://17cchigua.com.cn
+</code></p><br><br><h3>安防大模型落地全国，异常事件识别响应速度提升至毫秒级</h3><br><p>游资顶级席位打板亨通光电5400万，海缆标的获热炒。<br><br> | 来源：<code>https://17ccn.com.cn
+</code></p><br><br><h3>创新器械企业登陆港股，核心管线海外FDA获批引资金追捧</h3><br><p>中国女子赛艇队世锦赛斩获2金，奥运备战状态火热。<br><br> | 来源：<code>https://17ccom.com.cn
+</code></p><br><br><h3>厦门鼓浪屿暑期日均客流超12万，文艺文旅产品受年轻人追捧</h3><br><p>中国游泳队世锦赛斩获5金，打破2项世界纪录领跑泳坛。<br><br> | 来源：<code>https://17ccomchigua.com.cn
+</code></p><br><br><h3>多地推出“文旅+科技”项目，元宇宙景区落地超100家</h3><br><p>全国亚洲象种群数量突破350只，人象和谐共生格局形成。<br><br> | 来源：<code>https://17ccomgithub.com.cn
+</code></p><br><br><h3>地下综合管廊规划，地下管网标的全线异动</h3><br><p>隆平高科种业业务爆发，前三季度业绩预增超50%。<br><br> | 来源：<code>https://17ccomqicao.com.cn
+</code></p><br><br><h3>金风科技风电整机技术：国内风电龙头的技术迭代路径</h3><br><p>旅游年卡覆盖超200城，一票通玩激活本地休闲消费。<br><br> | 来源：<code>https://17ccomrukou.com.cn
+</code></p><br><br><h3>天然气价格季节性上涨15%，燃气运营板块迎来行情</h3><br><p>敦煌研究院数字文创营收突破5亿元，千年文化触达年轻群体。<br><br> | 来源：<code>https://17ccomyiqicao.com.cn
+</code></p><br><br><h3>上半年全国风电装机新增超3000万千瓦，清洁能源建设提速</h3><br><p>控股股东耗资5亿大手笔增持AI算力龙头，彰显长期发展信心。<br><br> | 来源：<code>https://17ccomyiqicaozaixian.com.cn
+</code></p><br><br><h3>中远海控行业周期复盘：集运行业的供需格局长期演变</h3><br><p>外资准入政策放宽，外资偏好标的全线拉升。<br><br> | 来源：<code>https://17ccwang.com.cn
+</code></p><br><br><h3>生猪收储政策启动，养殖板块迎来反弹催化</h3><br><p>中国男子乒乓球队世乒赛团体夺冠，实现十一连冠伟业。<br><br> | 来源：<code>https://17ccyiqicao.com.cn
