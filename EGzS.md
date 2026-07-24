@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分20秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>北方稀土稀土全产业链布局：国内稀土龙头的政策红利</h3><br><p>海南高速异动拉升2.0%，海南旅游带动车流量回升。<br><br> | 来源：<code>https://zhongwenzimu-rihan.com.cn
+</code></p><br><br><h3>证监会出台资本市场提质新政，鼓励上市公司加大分红比例</h3><br><p>中兴通讯沿趋势线上行，通信板块的轮动机会。<br><br> | 来源：<code>https://zhongwenzimuri-han.com.cn
+</code></p><br><br><h3>中航沈飞军机订单饱满，单季业绩预告超预期</h3><br><p>瑞士经济温和增长，金融和高端制造业表现稳定。<br><br> | 来源：<code>https://zhongwenzimurihan.com.cn
+</code></p><br><br><h3>中国冲浪队首次获得世界冠军，水上运动版图持续扩大</h3><br><p>中航沈飞军机交付逻辑：军工整机龙头的长期成长空间。<br><br> | 来源：<code>https://zhongying-guoji-web.com
+</code></p><br><br><h3>固德威放量上涨7.2%，户用储能业务爆发式增长</h3><br><p>多地出台文旅人才扶持政策，引进超万名文旅行业专业人才。<br><br> | 来源：<code>https://zhongying-zygjb-official.com
+</code></p><br><br><h3>猪肉价格触底反弹，生猪养殖标的集体走强</h3><br><p>工业硅价格触底反弹15%，光伏硅料成本端压力下降。<br><br> | 来源：<code>https://zhongziwuma.net.cn
+</code></p><br><br><h3>瓦楞纸价格上调4%，造纸板块迎来全面涨价催化</h3><br><p>人民币汇率阶段性贬值，出口导向型标的异动。<br><br> | 来源：<code>https://zhuce-song-cai-jin.com.cn
+</code></p><br><br><h3>北向资金连续加仓隆基绿能，光伏龙头获外资长线布局</h3><br><p>三一重工放量上涨，工程机械行业景气度边际改善。<br><br> | 来源：<code>https://zi-paitoupai.com.cn
+</code></p><br><br><h3>全国三北工程六期启动，规划造林超1000万公顷</h3><br><p>两融余额创阶段新高，券商杠杆业务标的异动。<br><br> | 来源：<code>https://zipaitoupai.com.cn
+</code></p><br><br><h3>大模型在餐饮领域应用，AI智能配菜优化食材利用率</h3><br><p>河北建工涨超2.7%，雄安新区基建订单饱满。<br><br> | 来源：<code>https://ziweishipin.cn
+</code></p><br><br><h3>储能行业需求爆发：产业链上下游的景气度传导逻辑</h3><br><p>外资资管连续加仓CXO龙头，近3月持仓占比提升至7%。<br><br> | 来源：<code>https://ziweishipin.net.cn
+</code></p><br><br><h3>广深铁路放量上涨3.1%，铁路客运收入回暖</h3><br><p>西安兵马俑暑期日均客流超7万，智慧分流系统提升游览体验。<br><br> | 来源：<code>https://zpkaz.cn
+</code></p><br><br><h3>东方财富涨超7.1%，基金代销业务环比改善</h3><br><p>保险资管连续增持酒店连锁龙头，消费复苏获机构长期配置。<br><br> | 来源：<code>https://zqbub.cn
+</code></p><br><br><h3>养老金新进PCB龙头，布局AI服务器硬件赛道</h3><br><p>全国农产品网络零售额上半年突破3500亿元，助力乡村振兴。<br><br> | 来源：<code>https://zuixin-wangzhi.com.cn
+</code></p><br><br><h3>特变电工新能源多赛道布局：从输变电到新能源的转型</h3><br><p>金龙汽车涨超3.6%，新能源客车订单持续落地。<br><br> | 来源：<code>https://zuixinfabuye.com.cn
+</code></p><br><br><h3>趋势行情里最忌频繁操作：顺势而为远比猜顶猜底重要</h3><br><p>养老服务体系建设政策，养老产业标的全线走强。<br><br> | 来源：<code>https://zukongwu.com.cn
+</code></p><br><br><h3>全国工业用水重复利用率达92%，节水型工业体系建成</h3><br><p>不要盲目跟风炒热点：大部分追高的资金，最后都会成为接盘侠。<br><br> | 来源：<code>https://zuoai-shipin.com.cn
+</code></p><br><br><h3>美联储宣布降息50BP超市场预期，全球风险资产暴涨</h3><br><p>知名私募调研卫星互联网标的，低轨卫星组网计划披露。<br><br> | 来源：<code>https://zuoshanai.com.cn
+</code></p><br><br><h3>恒瑞医药研发管线复盘：从仿制药龙头到创新药巨头的蜕变</h3><br><p>中国男子帆船队亚运会夺冠，水上项目实现新突破。<br><br> | 来源：<code>https://zuozuomu-ming-xi.com.cn
+</code></p><br><br><h3>大模型在文创领域应用，AI生成剧本、音乐成行业常态</h3><br><p>5年期LPR下调15BP，地产链估值修复行情延续。<br><br> | 来源：<code>https://zurbda.cn
