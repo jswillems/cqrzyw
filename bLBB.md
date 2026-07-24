@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分10秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国千岛湖水质保持Ⅰ类，成为重要饮用水源地标杆</h3><br><p>基金公司集体到访人形电机龙头，力矩电机产能释放数据。<br><br> | 来源：<code>https://hongyun-wangzhi-vip.com
+</code></p><br><br><h3>国家发改委出台促消费20条新政，重点支持汽车家电消费</h3><br><p>全球新能源汽车电池市场规模突破3000亿美元，中国企业主导。<br><br> | 来源：<code>https://hq-bd-tiyu.com.cn
+</code></p><br><br><h3>中国男子网球选手闯入ATP巡回赛决赛，创历史最佳排名</h3><br><p>QFII新进跨境电商龙头，海外机构看好出口高增长逻辑。<br><br> | 来源：<code>https://hq-biyi-tiyu.com.cn
+</code></p><br><br><h3>全国新型电力系统建设提速，新能源消纳能力提升35%</h3><br><p>美的集团创年内新高，多头排列下的趋势延续性。<br><br> | 来源：<code>https://hq-bw-tiyu.com.cn
+</code></p><br><br><h3>研学旅行扶持政策，教育旅游板块集体上涨</h3><br><p>全球可再生能源投资首次超过化石能源，能源转型拐点到来。<br><br> | 来源：<code>https://hq-fbsports.com.cn
+</code></p><br><br><h3>紫光国微特种芯片高增，单季业绩预告超预期</h3><br><p>中国水球队世锦赛闯入八强，水上集体项目进步显著。<br><br> | 来源：<code>https://hq-ff-tiyu.com.cn
+</code></p><br><br><h3>企业贷款利率创历史新低，制造业投资意愿有望回升</h3><br><p>江淮汽车与华为合作：传统车企与科技巨头的协同价值。<br><br> | 来源：<code>https://hq-jb-tiyu.com.cn
+</code></p><br><br><h3>超200家机构到访锂电铜箔龙头，4.5μm极薄铜箔量产</h3><br><p>成都大运会成功举办一周年，赛事遗产带动城市文旅增长。<br><br> | 来源：<code>https://hq-lebeijing-sports.com.cn
+</code></p><br><br><h3>全国乡村旅游重点村暑期接待人次破1亿，民宿入住率超95%</h3><br><p>杭州亚运会一周年纪念活动举办，场馆全年接待健身人次破亿。<br><br> | 来源：<code>https://hq-leisu-sports.com.cn
+</code></p><br><br><h3>民用无人机管理新规，无人机产业链全线走强</h3><br><p>三元正极材料价格上调6%，锂电材料产业链景气回升。<br><br> | 来源：<code>https://hq-pingbo-sports.com.cn
+</code></p><br><br><h3>陕西煤业高股息兑现，单季业绩预告超预期</h3><br><p>全国长江十年禁渔成效显著，水生生物资源逐步恢复。<br><br> | 来源：<code>https://hq-qiusu-sports.com.cn
+</code></p><br><br><h3>国内老年文旅市场升温，银发游订单同比增长70%</h3><br><p>贵州暑期游订单破4000万，“村超”带动全县文旅收入翻倍。<br><br> | 来源：<code>https://hq-shaba-tiyu.com.cn
+</code></p><br><br><h3>MLCC价格单月上涨5%，电容龙头盈利弹性释放</h3><br><p>京沪高铁暑运客流超预期，单季业绩预增超100%。<br><br> | 来源：<code>https://hq-xk-yule.com.cn
+</code></p><br><br><h3>全国足球场数量超20万个，人均足球场地面积达1.8平方米</h3><br><p>特斯拉FSD落地中国，自动驾驶板块集体拉升。<br><br> | 来源：<code>https://hth-official-vip.com.cn
+</code></p><br><br><h3>长沙五一广场暑期夜间客流超25万，文和友等网红店排号超千桌</h3><br><p>知名私募组团调研MR产业链标的，新品备货数据曝光。<br><br> | 来源：<code>https://http91com.cn
+</code></p><br><br><h3>超220家机构到访AI教育龙头，付费用户规模环比大增</h3><br><p>通用航空机场建设规划，通航运营板块集体上涨。<br><br> | 来源：<code>https://https17ccom.com.cn
+</code></p><br><br><h3>北方稀土行业地位：稀土全产业链龙头的政策红利</h3><br><p>超220家机构到访AI教育龙头，付费用户规模环比大增。<br><br> | 来源：<code>https://httpswww17ccom.com.cn
+</code></p><br><br><h3>逆向投资不是盲目抄底：在行业逻辑反转时布局，胜率才最高</h3><br><p>全国淮河生态经济带建设推进，流域水质优良比例达95%。<br><br> | 来源：<code>https://httpswww91com.cn
+</code></p><br><br><h3>实控人溢价25%增持电力现货交易标的，传递价值低估信号</h3><br><p>巴黎奥运会中国代表团斩获42金，位列金牌榜第二位。<br><br> | 来源：<code>https://httpwww17c.com.cn
+</code></p><br><br><h3>海尔智家稳步上行，慢牛趋势下的持仓节奏</h3><br><p>全国体育消费规模上半年突破8000亿元，运动装备销量暴涨。<br><br> | 来源：<code>https://httpwww17ccom.com.cn
