@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分21秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>明阳智能海上风电优势：大兆瓦风机的技术领先性逻辑</h3><br><p>全国工业企业利润同比增长8.7%，盈利水平持续修复。<br><br> | 来源：<code>https://guochantoupai.com.cn
+</code></p><br><br><h3>全球债务规模突破320万亿美元，新兴市场债务风险可控</h3><br><p>中国建筑基建龙头优势：国内建筑行业的订单与规模优势。<br><br> | 来源：<code>https://guochanyiqu.com.cn
+</code></p><br><br><h3>全国机动车国六b标准全面实施，新车排放污染大幅降低</h3><br><p>中国跳水队世锦赛包揽全部金牌，梦之队零失误完美收官。<br><br> | 来源：<code>https://guochanyiquerqusanqu.com.cn
+</code></p><br><br><h3>中国国际象棋队世锦赛包揽全部金牌，智力运动世界第一</h3><br><p>首套房贷款利率动态调整，核心城市刚需购房成本创新低。<br><br> | 来源：<code>https://guochanzhuanqu.com.cn
+</code></p><br><br><h3>专精特新企业扶持政策，专精特新标的全线异动</h3><br><p>公募基金集中调研储能温控龙头，海外客户拓展引关注。<br><br> | 来源：<code>https://guochanzi-pai.com.cn
+</code></p><br><br><h3>外资机构席位净买入中国交建5700万，基建龙头获外资加仓</h3><br><p>2026年美丽中国建设成效显著，绿色发展底色更加鲜明。<br><br> | 来源：<code>https://guodongchuanmeizaixianguankan.com.cn
+</code></p><br><br><h3>超240家机构到访氢能燃料电池标的，商用车推广数据公开</h3><br><p>沪股通席位单日买入华友钴业8100万，新能源金属标的增持。<br><br> | 来源：<code>https://guuxfa.cn
+</code></p><br><br><h3>运达股份放量上涨5.3%，风电整机盈利修复</h3><br><p>社保基金新进汽车座椅龙头，布局汽车轻量化赛道。<br><br> | 来源：<code>https://h-youxi.com.cn
+</code></p><br><br><h3>北京君正车载存储优势：汽车电子赛道的高景气受益标的</h3><br><p>全国马拉松赛事上半年举办超500场，参赛人次突破600万。<br><br> | 来源：<code>https://h5-mitaoshipin.com.cn
+</code></p><br><br><h3>全国抽水蓄能电站装机容量突破8000万千瓦，储能能力提升</h3><br><p>国产EDA龙头登陆科创板，核心技术打破海外垄断引市场关注。<br><br> | 来源：<code>https://haideshirenqi.com.cn
+</code></p><br><br><h3>全国PPI同比由负转正，工业企业盈利预期持续改善</h3><br><p>1年期MLF利率下调带动全市场利率下行，债券牛市延续。<br><br> | 来源：<code>https://haideshirenqidongman.com.cn
+</code></p><br><br><h3>全国城镇调查失业率降至4.8%，就业形势保持总体稳定</h3><br><p>外资资管集中调研跨境电商龙头，出口增速数据首次公开。<br><br> | 来源：<code>https://haijiao-luntan.cn
+</code></p><br><br><h3>恒瑞医药研发管线复盘：从仿制药龙头到创新药巨头的蜕变</h3><br><p>全球机器人装机量突破500万台，工业自动化加速普及。<br><br> | 来源：<code>https://haijiao-shequ.com.cn
+</code></p><br><br><h3>大模型轻量化部署方案成熟，中小企业接入成本下降90%</h3><br><p>紫金矿业创阶段新高3.2%，铜金产量持续超预期。<br><br> | 来源：<code>https://haijiao-wang.com.cn
+</code></p><br><br><h3>阳光电源研发投入：逆变器龙头持续保持技术领先的原因</h3><br><p>新疆暑期游订单破5000万，独库公路日均通车量超2万辆。<br><br> | 来源：<code>https://haijiaoluanlun.com.cn
+</code></p><br><br><h3>医疗器械集采结果温和，医疗设备标的全线异动</h3><br><p>上海建工涨超2.9%，上海城市更新订单爆发。<br><br> | 来源：<code>https://haijiaoshequdizhi.cn
+</code></p><br><br><h3>中超联赛场均上座人数突破2.5万，球市全面回暖</h3><br><p>养老金现身特高压龙头调研，海外工程落地节奏引热议。<br><br> | 来源：<code>https://haijiaoshequluanlun.cn
+</code></p><br><br><h3>机构资金联手买入明阳智能1.2亿，风机龙头获机构抱团</h3><br><p>央行降准降息组合拳落地，A股市场迎来全面估值修复。<br><br> | 来源：<code>https://haijiaoshequshipin.cn
+</code></p><br><br><h3>西安大唐不夜城暑期日均客流超20万，沉浸式文旅成爆款</h3><br><p>除草剂价格单月上涨15%，农药龙头盈利修复超预期。<br><br> | 来源：<code>https://haijiaozuixindizhi.cn
+</code></p><br><br><h3>QFII大幅加仓预制菜龙头，B端渠道扩张获海外机构看好</h3><br><p>QFII集中调研海上风电标的，深远海项目订单引热议。<br><br> | 来源：<code>https://han-man.cn
