@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时39分36秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>半导体产业扶持基金落地，大基金二期标的全线拉升</h3><br><p>中国建筑基建龙头优势：国内建筑行业的订单与规模优势。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>超250家机构到访AI大模型企业，ToB付费转化率超预期</h3><br><p>全国体育产业总规模上半年突破3.5万亿元，占GDP比重提升。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>极端暴雨灾害预警，水利基建标的全线上涨</h3><br><p>国内大模型出海东南亚，服务超百万当地企业。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>洛阳龙门石窟暑期游客量突破200万人次，石窟艺术游受追捧</h3><br><p>百亿私募组团调研6G通信企业，技术试验进度超市场预期。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>中国与中亚五国经贸合作升级，双边贸易额突破千亿</h3><br><p>药明康德全球竞争力研究：CXO赛道的长期成长逻辑。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>控股股东耗资3亿增持汽车电子标的，回购股份用于股权激励</h3><br><p>多地推出城市更新专项政策，年内撬动投资超万亿元。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>新宙邦涨超4.5%，电解液盈利预期改善</h3><br><p>比亚迪全产业链布局：从电池到整车的垂直整合优势。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>正邦科技放量上涨4.5%，债务重组进展顺利</h3><br><p>全球跨境旅游人次上半年突破7亿，旅游业全面复苏。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>互联网平台经济政策回暖，中概股联动标的上涨</h3><br><p>量子通信标的启动申购，干线网络建设订单同比翻倍。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>存储芯片价格连续上涨12%，存储板块迎来趋势性行情</h3><br><p>产业资本集中增持锂电铜箔龙头，极薄铜箔技术获资本布局。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>伊利股份乳制品龙头优势：国内乳业龙头的品牌与渠道</h3><br><p>中国国际象棋队世锦赛包揽全部金牌，智力运动世界第一。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>QFII集中调研国产EDA企业，全流程工具突破引关注</h3><br><p>医疗器械创新绿色通道，创新器械板块异动。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>铅价上涨7%，铅酸电池板块盈利边际改善</h3><br><p>美联储降息25BP符合市场预期，全球股市迎来普涨行情。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>中国女子曲棍球队闯入世界联赛总决赛，实力稳步回升</h3><br><p>文化纸价格单月上涨6%，纸企盈利边际改善。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>全球6G研发进入关键阶段，多国联合推进技术标准制定</h3><br><p>山西汾酒青花系列批价上涨7%，清香白酒板块景气回升。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>中芯国际放量拉升7.1%，半导体国产替代逻辑再强化</h3><br><p>东方财富涨超7.1%，基金代销业务环比改善。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>存量房贷利率批量下调，银行板块短期冲击可控</h3><br><p>招商银行沿20日均线上行，稳健标的的持仓节奏。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>头部公募调研汽车电子标的，车规芯片出货量环比大增</h3><br><p>工业硅价格触底反弹15%，光伏硅料成本端压力下降。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>赣锋锂业技术储备：固态电池商业化的领先优势</h3><br><p>紫金矿业资源储备优势：黄金铜价上行周期的业绩弹性。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>西安大唐不夜城暑期日均客流超20万，沉浸式文旅成爆款</h3><br><p>风电塔筒价格单月上涨6%，风电制造环节盈利改善。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>风电并网消纳政策优化，风电运营板块全线走强</h3><br><p>中兴通讯放量上涨4.8%，算力服务器业务高增。<br><br> | 来源：<code>www.thepodala.com
