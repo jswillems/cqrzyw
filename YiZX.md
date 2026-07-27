@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分21秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>旅游年卡覆盖超200城，一票通玩激活本地休闲消费</h3><br><p>机构专用席位净买入长电科技1.9亿，封测龙头获长线资金加仓。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>证监会启动全面注册制优化改革，提升资本市场包容性</h3><br><p>西部大开发新规划出台，西部基建标的全线拉升。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>全国水土流失治理面积年度完成6万平方公里，生态修复提速</h3><br><p>量子信息产业规划发布，量子通信标的全线拉升。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>上半年出境游人次突破8000万，跨境旅游全面复苏</h3><br><p>外资单日扫货阳光电源15亿，逆变器龙头外资持仓创新高。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>中国手球俱乐部首次获得亚洲冠军，项目发展迎来新机遇</h3><br><p>国内文创产品市场规模破千亿，故宫文创年营收超20亿。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>国铁集团旗下标的异动，铁路改革预期持续升温</h3><br><p>全国会展经济快速复苏，上半年展览场次同比增长45%。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>实控人溢价20%增持氢能龙头，传递公司价值被低估信号</h3><br><p>中国垒球队获得亚运会银牌，项目普及度快速提升。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>5年期以上LPR大幅下调20BP，地产链板块全线异动</h3><br><p>保险资管扎堆调研绿电运营标的，电价弹性空间引热议。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>硅片价格单月上涨5%，光伏制造环节盈利边际改善</h3><br><p>沪股通席位单日买入美的集团2.1亿，家电龙头获外资增持。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>浪潮信息AI服务器产能：国内AI服务器龙头的份额优势</h3><br><p>赣锋锂业放量上涨，固态电池技术落地加速。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>国产都市剧收视领跑，聚焦当代年轻人生活引发广泛讨论</h3><br><p>嫦娥探月工程新任务，航天科技产业链迎来催化。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>东方电气氢能布局：能源装备龙头的第二成长曲线解析</h3><br><p>洋河股份渠道改革：白酒企业渠道优化的成功案例解析。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>紫金矿业沿5日均线上行，趋势行情下的持仓策略</h3><br><p>散户最容易踩的坑：涨一点就卖，跌一点就割，最后两头亏。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>大模型轻量化部署方案成熟，中小企业接入成本下降90%</h3><br><p>央行下调再贷款再贴现利率，小微和三农融资成本下行。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>中国短道速滑队世锦赛斩获4金，冰上项目实力稳固</h3><br><p>河北建工涨超2.7%，雄安新区基建订单饱满。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>北约峰会发布新战略文件，调整东翼防御部署</h3><br><p>阳光电源技术迭代能力：逆变器龙头的全球竞争力。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>央行加大结构性降息力度，精准支持数字经济领域</h3><br><p>桂林山水暑期游客量突破400万人次，经典景区持续焕发活力。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>控股股东耗资2.8亿增持创新药龙头，核心管线临床进展获信心</h3><br><p>知名私募调研量子通信标的，干线网络建设落地节奏披露。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>北向资金连续5日加仓贵州茅台，持仓占比创历史新高</h3><br><p>宁德时代商业模式拆解：动力电池龙头的护城河有多深。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>外资机构席位净买入中国交建5700万，基建龙头获外资加仓</h3><br><p>美的集团创年内新高，多头排列下的趋势延续性。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>高管团队集体调研后集中增持6G通信标的，合计增持超1亿</h3><br><p>蒙牛乳业放量上涨3.7%，低温奶业务增速亮眼。<br><br> | 来源：<code>www.huihuabang.com
