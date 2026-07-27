@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分17秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>北方华创半导体设备订单爆发，单季业绩预增超80%</h3><br><p>中际旭创800G光模块放量，前三季度业绩预增130%。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>泰胜风能海外出口优势：风电塔架出口龙头的成长逻辑</h3><br><p>全国新增10家5A级景区，文旅品质持续升级。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>体育产业消费刺激政策，体育消费标的全线异动</h3><br><p>美的集团创年内新高，海外家电收入增速超20%。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>上半年全国网上零售额同比增长9.5%，直播电商贡献突出</h3><br><p>黄金价格创历史新高，黄金珠宝板块盈利弹性释放。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>京东言犀大模型供应链版上线，助力电商降本增效</h3><br><p>西班牙经济增速达2.8%，南欧经济表现亮眼。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>成都大运会成功举办一周年，赛事遗产带动城市文旅增长</h3><br><p>北向资金举牌碳化硅企业，车规级半导体获外资重仓。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>中国举重队世锦赛打破12项世界纪录，优势项目持续领先</h3><br><p>产业资本连续增持智能电网标的，特高压产业链获资本布局。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>社保基金新进智慧矿山龙头，布局煤矿智能化改造赛道</h3><br><p>全国光伏装机容量突破9亿千瓦，分布式光伏占比超60%。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>控股股东耗资4亿增持算力租赁标的，回购注销增厚每股收益</h3><br><p>产业资本集中增持锂电铜箔龙头，极薄铜箔技术获资本布局。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>央行表态适时加大政策力度，后续降准降息仍有空间</h3><br><p>存款利率下调推动居民储蓄搬家，权益市场增量资金入场。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>全国老年大学体育课程覆盖超千万老人，健康老龄化推进</h3><br><p>粤高速A异动拉升2.6%，大湾区车流量高增。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>控股股东耗资2.5亿增持储能电池标的，彰显海外订单信心</h3><br><p>广州马拉松开跑，参赛选手破3万全马完赛率创新高。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>养老金新进AI芯片设计标的，布局大模型推理芯片赛道</h3><br><p>三星堆博物馆新馆全面开放，单日最大接待量突破5万人次。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>暑期电影票房突破120亿，国产影片包揽票房前十</h3><br><p>粤港澳大湾区政策升级，湾区地产基建标的走强。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>全国篮球联赛NBL总决赛落幕，陕西队时隔5年再度夺冠</h3><br><p>大模型在气象灾害预警领域应用，预警覆盖率提升至98%。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>高管团队集体增持智慧交通标的，合计增持金额超1.2亿</h3><br><p>洋河股份梦之蓝品牌升级：次高端赛道的份额扩张逻辑。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>全国南水北调沿线生态廊道建成，水质稳定保持Ⅱ类</h3><br><p>光伏组件出口数据亮眼：产业链盈利修复路径。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>炒股最难的不是买对，而是在波动里守住正确的持仓</h3><br><p>北向资金连续增持核电设备龙头，近1月持仓增幅超25%。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>武当山暑期游客量突破120万人次，道教文化游持续升温</h3><br><p>上半年全国跨境电商进出口额同比增长15%，新业态活力迸发。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>基金公司集体到访氢能储运龙头，高压储氢瓶订单爆发</h3><br><p>葛洲坝异动拉升3.4%，水电工程业务持续增长。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>料酒价格上涨4%，调味品细分板块迎来行情</h3><br><p>民宿行业规范发展政策，乡村旅游标的全线拉升。<br><br> | 来源：<code>www.hnltjy.com
