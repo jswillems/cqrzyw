@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分52秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>数字中国建设新规划，数字经济标的集体异动</h3><br><p>洋河梦之蓝批价上调4%，白酒全产业链盈利优化。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>全国工业企业利润同比增长8.7%，盈利水平持续修复</h3><br><p>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>国务院出台6方面24条政策，进一步扩大对外开放</h3><br><p>核电新项目审批重启，核电产业链标的全线拉升。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>美联储降息后大宗商品集体上涨，有色板块全线异动</h3><br><p>美联储降息25BP，中概股集体暴涨带动A股联动。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>民宿行业规范发展政策，乡村旅游标的全线拉升</h3><br><p>天合光能放量上涨5.5%，N型组件渗透率持续提升。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>机构资金联手买入东方电气6200万，能源装备龙头获抱团</h3><br><p>美联储宣布降息25个基点，全球货币政策转向宽松周期。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>特变电工新能源多赛道布局：从输变电到新能源的转型</h3><br><p>容百科技高镍正极技术：锂电高镍化趋势下的龙头受益。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>金龙汽车海外客车出口：客车行业龙头的海外拓展逻辑</h3><br><p>黄河流域生态保护和高质量发展新规划发布。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>北向资金连续增持医美耗材龙头，近2月持仓增幅超40%</h3><br><p>化肥价格集体上涨，农资板块迎来产品涨价催化。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>天际股份锂电材料业务：传统化工企业的转型成长逻辑</h3><br><p>全国森林覆盖率提升至24.5%，年新增造林面积超600万公顷。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>网络安全政策升级，网安板块集体上涨</h3><br><p>东方财富获机构席位净买入4.2亿，互联网券商获资金加仓。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>公募基金集中调研电力信息化龙头，虚拟电厂订单翻倍</h3><br><p>平遥古城暑期推出实景演出，夜间场次上座率超100%。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>机构资金联手买入晶澳科技7600万，组件龙头获机构抱团</h3><br><p>长缆科技异动拉升4.3%，高压电缆需求回暖。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>国际地缘与全球经济（100条）</h3><br><p>杀虫剂价格上涨12%，农化产业链景气回升。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>头部券商到访光伏胶膜标的，原材料成本下降弹性曝光</h3><br><p>基金公司集体到访液冷技术龙头，AI数据中心液冷订单爆发。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>杀虫剂价格上涨12%，农化产业链景气回升</h3><br><p>外资单日扫货阳光电源15亿，逆变器龙头外资持仓创新高。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>航发动力技术壁垒：航空发动机国产替代的核心路径</h3><br><p>绍兴推出“跟着课本游绍兴”线路，研学游覆盖超百万学生。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>动力电池级碳酸锂报价单日上涨2000元/吨，产业链回暖信号显现</h3><br><p>黄山暑期单日客流破4万，山顶酒店提前半个月售罄。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>城市漫步"Citywalk"成为潮流，上半年相关订单同比增长120%</h3><br><p>南京夫子庙暑期客流超2000万，秦淮夜游营收同比翻倍。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>阳光电源涨超7%，逆变器海外订单持续超预期</h3><br><p>超200家机构到访锂电铜箔龙头，4.5μm极薄铜箔量产。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>券商研究所扎堆调研智能电网标的，特高压设备中标数据</h3><br><p>公募基金集中调研储能温控龙头，海外客户拓展引关注。<br><br> | 来源：<code>www.nimendong.com
