@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分43秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>薯片产品价格上调4%，零食板块迎来涨价催化</h3><br><p>北向资金连续5日加仓贵州茅台，持仓占比创历史新高。<br><br> | 来源：<code>https://hanxiucaoyanjiuyuan.cn
+</code></p><br><br><h3>矿产资源勘探政策，地质勘查标的全线异动</h3><br><p>生活用纸价格上调4%，生活用纸龙头盈利提升。<br><br> | 来源：<code>https://hanxiucaozaixian.com.cn
+</code></p><br><br><h3>保险资管扎堆调研绿电运营标的，电价弹性空间引热议</h3><br><p>央行新增5000亿元支小再贷款，精准支持小微企业发展。<br><br> | 来源：<code>https://hao-lianxi.com.cn
+</code></p><br><br><h3>成渝双城经济圈建设三年成效显著，GDP总量突破8万亿元</h3><br><p>荣盛石化涨超4.1%，新材料业务贡献新增量。<br><br> | 来源：<code>https://haohuaidongman.com.cn
+</code></p><br><br><h3>中国霹雳舞队奥运会夺得金牌，新兴街舞项目站上世界之巅</h3><br><p>头部机构组团到访核电设备龙头，新机组中标订单披露。<br><br> | 来源：<code>https://haomen-intl-pro.com.cn
+</code></p><br><br><h3>天然气价格季节性上涨15%，燃气运营板块迎来行情</h3><br><p>新宙邦涨超4.5%，电解液盈利预期改善。<br><br> | 来源：<code>https://haosejinglingtanfangji.com.cn
+</code></p><br><br><h3>全国青少年校园足球特色学校超3万所，足球人口快速增长</h3><br><p>美联储降息后大宗商品集体上涨，有色板块全线异动。<br><br> | 来源：<code>https://haosetv.com.cn
+</code></p><br><br><h3>存储芯片价格连续上涨12%，存储板块迎来趋势性行情</h3><br><p>全国研学基地超万家，覆盖所有地级市满足学生实践需求。<br><br> | 来源：<code>https://hei-liao-chi-gua-wang.com.cn
+</code></p><br><br><h3>中国男子篮球队亚洲杯闯入决赛，时隔10年重返领奖台</h3><br><p>重庆洪崖洞暑期客流创新高，网红打卡点日均接待超15万。<br><br> | 来源：<code>https://hei-liao-chi-gua.com.cn
+</code></p><br><br><h3>超160家机构到访锂电回收龙头，回收处理产能利用率超90%</h3><br><p>铁矿石价格反弹10%，铁矿上市公司盈利边际改善。<br><br> | 来源：<code>https://hei-liao-shequ.com.cn
+</code></p><br><br><h3>三亚亚特兰蒂斯暑期日均客流超3万，水世界项目一票难求</h3><br><p>新希望全产业链布局：从饲料到养殖的协同优势解析。<br><br> | 来源：<code>https://hei-liao-wang.com.cn
+</code></p><br><br><h3>中国平安涨超3.4%，寿险新业务价值增速转正</h3><br><p>大股东耗资4.5亿增持碳化硅衬底龙头，助力6英寸产能扩张。<br><br> | 来源：<code>https://hei-liaobaike.cn
+</code></p><br><br><h3>多地推出城市更新专项政策，年内撬动投资超万亿元</h3><br><p>义务教育优质均衡创建推进，千个县区通过国家级评估。<br><br> | 来源：<code>https://hei-liaobaoliao.cn
+</code></p><br><br><h3>中国现代五项队世锦赛夺得金牌，全能项目实现突破</h3><br><p>山西汾酒青花系列批价上涨7%，清香白酒板块景气回升。<br><br> | 来源：<code>https://hei-liaobu.cn
+</code></p><br><br><h3>车规级芯片国产替代加速，汽车半导体板块走强</h3><br><p>全国农业面源污染治理成效显著，化肥使用量连续11年下降。<br><br> | 来源：<code>https://hei-liaobudayang.cn
+</code></p><br><br><h3>北向资金单日买入中国神华1.5亿，高股息龙头获外资持续流入</h3><br><p>人民币汇率阶段性贬值，出口导向型标的异动。<br><br> | 来源：<code>https://hei-liaobudayang.com.cn
+</code></p><br><br><h3>美联储降息周期开启，黄金珠宝板块迎来趋势性行情</h3><br><p>养老金新进PCB龙头，布局AI服务器硬件赛道。<br><br> | 来源：<code>https://hei-liaochigua.cn
+</code></p><br><br><h3>成渝双城经济圈政策加码，成渝板块标的全线上涨</h3><br><p>全国新增10家5A级景区，文旅品质持续升级。<br><br> | 来源：<code>https://hei-liaochigua.com.cn
+</code></p><br><br><h3>LPR非对称下调，银行净息差压力边际缓解</h3><br><p>国电南瑞电力数字化：新型电力系统建设下的长期受益。<br><br> | 来源：<code>https://hei-liaochiguawang.com.cn
+</code></p><br><br><h3>中国中铁放量上涨3.0%，一带一路订单同比翻倍</h3><br><p>中天科技放量上涨4.7%，海缆+储能双轮驱动。<br><br> | 来源：<code>https://hei-liaodaohang.cn
