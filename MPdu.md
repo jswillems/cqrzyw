@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分40秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>央行逆回购操作利率下调，短期资金面维持宽松</h3><br><p>国际黄金价格回升至2100美元/盎司，避险需求再度升温。<br><br> | 来源：<code>https://17cnyiqicao.com.cn
+</code></p><br><br><h3>通威股份硅料成本优势：光伏全产业链龙头的盈利韧性</h3><br><p>全国文旅智慧平台全覆盖，实现线上预约、导览、投诉一站式服务。<br><br> | 来源：<code>https://17cnyiqicaochigua.com.cn
+</code></p><br><br><h3>中际旭创再创历史新高，800G光模块份额超70%</h3><br><p>西部大开发新规划出台，西部基建标的全线拉升。<br><br> | 来源：<code>https://17cnyiqicaomeiridasai.com.cn
+</code></p><br><br><h3>水产品价格集体上涨，水产养殖板块迎来涨价催化</h3><br><p>全国红树林面积增至3万公顷，成为海洋生态保护标杆。<br><br> | 来源：<code>https://17cqicao.com.cn
+</code></p><br><br><h3>蔚来汽车放量上涨8.8%，换电网络覆盖持续扩大</h3><br><p>北京中轴线申遗进入冲刺阶段，千年古都风貌全面保护。<br><br> | 来源：<code>https://17cqicaokou.com.cn
+</code></p><br><br><h3>安琪酵母全球布局：酵母行业全球龙头的份额扩张逻辑</h3><br><p>教育部新增37个高校专业，聚焦人工智能、生物医药等前沿领域。<br><br> | 来源：<code>https://17cqicaozaixianguankan.com.cn
+</code></p><br><br><h3>光伏组件出口创历史新高，光伏海外链标的走强</h3><br><p>光伏N型电池设备标的登陆科创板，TOPCon设备市占率超60%。<br><br> | 来源：<code>https://17cqicaozaixianguankanmianfeiban.com.cn
+</code></p><br><br><h3>钴价连续上涨13%，3C电池板块盈利提升</h3><br><p>医美监管政策优化，医美消费标的全线拉升。<br><br> | 来源：<code>https://17cshipin.com.cn
+</code></p><br><br><h3>全国矿山生态修复面积年度完成超2万公顷，废弃矿山变绿洲</h3><br><p>钢材价格单月上涨7%，钢铁板块迎来产品涨价催化。<br><br> | 来源：<code>https://17ctw.com.cn
+</code></p><br><br><h3>国内音乐节市场爆发，上半年演出场次同比增长150%</h3><br><p>新能源金属需求回暖：钴、锂、镍的行情持续性对比。<br><br> | 来源：<code>https://17cvip.com.cn
+</code></p><br><br><h3>北汽蓝谷异动拉升5.3%，极狐品牌销量边际改善</h3><br><p>北方稀土稀土全产业链布局：国内稀土龙头的政策红利。<br><br> | 来源：<code>https://17cwang.com.cn
+</code></p><br><br><h3>纯碱价格连续上涨12%，玻璃产业链成本端压力边际缓解</h3><br><p>全国工业用水重复利用率达92%，节水型工业体系建成。<br><br> | 来源：<code>https://17cyiqi.com.cn
+</code></p><br><br><h3>重庆路桥异动拉升2.4%，区域路桥业务盈利稳定</h3><br><p>尿素价格单月上涨9%，化肥板块迎来产品涨价催化。<br><br> | 来源：<code>https://17cyiqicao.com.cn
+</code></p><br><br><h3>头部券商到访家电出海龙头，海外自主品牌占比突破40%</h3><br><p>韦尔股份CIS芯片布局：图像传感器行业的周期与成长。<br><br> | 来源：<code>https://17cyiqicaoguoguankanwanzhengban.com.cn
+</code></p><br><br><h3>国产大模型出海加速，东南亚市场份额突破30%</h3><br><p>服务贸易创新发展试点，服务贸易板块集体上涨。<br><br> | 来源：<code>https://17cyiqicaorukou.com.cn
+</code></p><br><br><h3>钠离子电池材料价格上涨8%，钠电池产业链盈利优化</h3><br><p>中际旭创客户优势：全球云厂商的深度绑定合作关系。<br><br> | 来源：<code>https://17cyiqicaozaixianguankan.com.cn
+</code></p><br><br><h3>降准资金定向支持三农，农业板块迎来流动性利好</h3><br><p>跨境支付龙头登陆港股，海外结算规模年增速超80%。<br><br> | 来源：<code>https://17cyiqizaixianguankan.com.cn
+</code></p><br><br><h3>北向资金连续加仓东方财富，互联网券商获外资持续流入</h3><br><p>宝钢股份高端钢铁布局：国内钢铁龙头的产品结构升级。<br><br> | 来源：<code>https://17qicaoshipin.com.cn
+</code></p><br><br><h3>电竞入亚成绩亮眼，电竞游戏产业链标的拉升</h3><br><p>蚝油产品价格上调3%，调味品全产业链盈利优化。<br><br> | 来源：<code>https://17yiqicao.com.cn
+</code></p><br><br><h3>南京夫子庙暑期客流超2000万，秦淮夜游营收同比翻倍</h3><br><p>国产AI芯片算力突破256TOPS，支撑大模型高效运行。<br><br> | 来源：<code>https://18-wangzhan.com.cn
