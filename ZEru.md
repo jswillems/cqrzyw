@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分18秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>上海自贸区扩区方案落地，引领更高水平对外开放</h3><br><p>动力电池级碳酸锂报价单日上涨2000元/吨，产业链回暖信号显现。<br><br> | 来源：<code>https://51dashijian.com.cn
+</code></p><br><br><h3>中拉经贸合作论坛举办，达成超200亿美元合作协议</h3><br><p>周期品沿趋势上行：黄金、有色、钢铁的业绩弹性对比。<br><br> | 来源：<code>https://51hei-liao.com.cn
+</code></p><br><br><h3>世界贸易组织第13届部长级会议召开，达成多项多边协议</h3><br><p>中国游泳队世锦赛斩获7金，打破3项世界纪录。<br><br> | 来源：<code>https://52-pojie.com.cn
+</code></p><br><br><h3>云南泼水节暑期活动重启，单日参与游客突破50万人次</h3><br><p>机构资金联手买入浪潮信息3.3亿，AI服务器龙头获机构抱团。<br><br> | 来源：<code>https://52662-dingsheng-official.com
+</code></p><br><br><h3>大股东耗资4.5亿增持碳化硅衬底龙头，助力6英寸产能扩张</h3><br><p>金龙汽车海外客车出口：客车行业龙头的海外拓展逻辑。<br><br> | 来源：<code>https://6686-online-login.com
+</code></p><br><br><h3>全国体育场馆免费或低收费开放，年接待群众超10亿人次</h3><br><p>地方国资战略入股人形电机龙头，助力核心零部件国产化。<br><br> | 来源：<code>https://728-android-old.com
+</code></p><br><br><h3>全国金丝猴种群数量突破4万只，多个栖息地生态改善</h3><br><p>保险资管扎堆调研航空发动机标的，量产交付进度引关注。<br><br> | 来源：<code>https://800-quanxun-baicai.com
+</code></p><br><br><h3>长安汽车涨停封板，深蓝系列车型销量破万</h3><br><p>机构+北向合力买入东方雨虹7700万，建材龙头获资金布局。<br><br> | 来源：<code>https://8268-caipiao-official.com
+</code></p><br><br><h3>敦煌莫高窟暑期门票预约排至10天后，数字敦煌线上访问破亿</h3><br><p>全国健身气功交流大赛举办，覆盖超百万中老年爱好者。<br><br> | 来源：<code>https://850-official-old.com
+</code></p><br><br><h3>全国城市黑臭水体治理完成率100%，居民亲水空间增加</h3><br><p>大模型在城市治理领域应用，事件处理响应速度提升3倍。<br><br> | 来源：<code>https://850-version-new.com
+</code></p><br><br><h3>保险资管扎堆调研航空发动机标的，量产交付进度引关注</h3><br><p>光伏行业产能置换政策落地，落后产能出清标的异动。<br><br> | 来源：<code>https://8866h-cc-vip.com
+</code></p><br><br><h3>5年期LPR下调带动地产链估值修复，家居家电板块集体上涨</h3><br><p>上半年全国跨境电商进出口额同比增长15%，新业态活力迸发。<br><br> | 来源：<code>https://8868-app-vip.com
+</code></p><br><br><h3>中兴通讯通信技术积累：6G时代的核心竞争力展望</h3><br><p>降准释放长期资金支持基建，建筑板块迎来估值修复。<br><br> | 来源：<code>https://8x8x8.com.cn
+</code></p><br><br><h3>首套房贷款利率突破2.9%，刚需购房成本创历史新低</h3><br><p>房贷利率下调后二手房成交回暖，家居家电需求回升。<br><br> | 来源：<code>https://8x8x8x.com.cn
+</code></p><br><br><h3>F1中国大奖赛上海站落幕，周冠宇获本土最佳第四名创历史</h3><br><p>贵州茅台站稳1720元，批价回升带动板块情绪。<br><br> | 来源：<code>https://8x8xshuimitao.com.cn
+</code></p><br><br><h3>钛白粉开启新一轮涨价潮，全行业提价覆盖海内外市场</h3><br><p>5年期LPR超预期下调，房企融资环境边际改善。<br><br> | 来源：<code>https://8x8xzaixianguankanwanzhengban.com.cn
+</code></p><br><br><h3>储能温控龙头开启新股申购，海外客户覆盖全球头部厂商</h3><br><p>社保基金现身存储模组龙头，AI存储产品出货量超预期。<br><br> | 来源：<code>https://91-baihu.com.cn
+</code></p><br><br><h3>地方国资战略入股数据要素龙头，持股比例达12%成第二大股东</h3><br><p>头部机构组团到访中药创新药标的，医保谈判结果超预期。<br><br> | 来源：<code>https://91-cc.com.cn
+</code></p><br><br><h3>全国演出市场线下消费人次破亿，周边产品营收占比提升</h3><br><p>存量房贷利率批量下调，银行板块短期冲击可控。<br><br> | 来源：<code>https://91-chengren-zaixian.com.cn
+</code></p><br><br><h3>QFII集中调研快递物流龙头，单票盈利创历史新高</h3><br><p>全国千岛湖水质保持Ⅰ类，成为重要饮用水源地标杆。<br><br> | 来源：<code>https://91-chigua.com.cn
